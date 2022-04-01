@@ -1,3 +1,3 @@
-_**Good judgment comes from experience, and a lot of that comes from bad judgment.**_
+_**Everyone thinks of changing the world, but no one thinks of changing himself.**_
 
-Will Rogers
+Leo Tolstoy
