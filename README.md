@@ -1,3 +1,3 @@
-_**Everyone thinks of changing the world, but no one thinks of changing himself.**_
+_**Love cures people - both the ones who give it and the ones who receive it.**_
 
-Leo Tolstoy
+Karl Menninger
