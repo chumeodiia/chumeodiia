@@ -1,3 +1,3 @@
-_**When fate hands us a lemon, let's try to make lemonade.**_
+_**There is nothing impossible to him who will try.**_
 
-Dale Carnegie
+Alexander the Great
