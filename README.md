@@ -1,3 +1,3 @@
-_**I can, therefore I am.**_
+_**The more you like yourself, the less you are like anyone else, which makes you unique.**_
 
-Simone Weil
+Walt Disney
