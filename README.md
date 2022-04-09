@@ -1,3 +1,3 @@
-_**The more you like yourself, the less you are like anyone else, which makes you unique.**_
+_**A thing long expected takes the form of the unexpected when at last it comes.**_
 
-Walt Disney
+Mark Twain
