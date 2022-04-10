@@ -1,3 +1,3 @@
-_**A thing long expected takes the form of the unexpected when at last it comes.**_
+_**The best preparation for tomorrow is doing your best today.**_
 
-Mark Twain
+H. Jackson Brown Jr.
