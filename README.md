@@ -1,3 +1,3 @@
-_**The best preparation for tomorrow is doing your best today.**_
+_**Criticism is something you can easily avoid by saying nothing, doing nothing, and being nothing.**_
 
-H. Jackson Brown Jr.
+Aristotle
