@@ -1,3 +1,3 @@
-_**Criticism is something you can easily avoid by saying nothing, doing nothing, and being nothing.**_
+_**In life, all good things come hard, but wisdom is the hardest to come by.**_
 
-Aristotle
+Lucille Ball
