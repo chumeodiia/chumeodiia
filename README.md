@@ -1,3 +1,3 @@
-_**In life, all good things come hard, but wisdom is the hardest to come by.**_
+_**To acquire knowledge, one must study; but to acquire wisdom, one must observe.**_
 
-Lucille Ball
+Marilyn vos Savant
