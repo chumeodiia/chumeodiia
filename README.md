@@ -1,3 +1,3 @@
-_**To acquire knowledge, one must study; but to acquire wisdom, one must observe.**_
+_**No one has a finer command of language than the person who keeps his mouth shut.**_
 
-Marilyn vos Savant
+Sam Rayburn
