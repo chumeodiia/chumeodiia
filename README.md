@@ -1,3 +1,3 @@
-_**When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.**_
+_**The most important thing is transforming our minds, for a new way of thinking, a new outlook: we should strive to develop a new inner world.**_
 
-Wayne Dyer
+Dalai Lama
