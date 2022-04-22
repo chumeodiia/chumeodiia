@@ -1,3 +1,3 @@
-_**Perseverance is a great element of success. If you only knock long enough and loud enough at the gate, you are sure to wake up somebody.**_
+_**In complete darkness we are all the same, it is only our knowledge and wisdom that separates us, don't let your eyes deceive you.**_
 
-Henry Wadsworth Longfellow
+Janet Jackson
