@@ -1,3 +1,3 @@
-_**In complete darkness we are all the same, it is only our knowledge and wisdom that separates us, don't let your eyes deceive you.**_
+_**The energy of the mind is the essence of life.**_
 
-Janet Jackson
+Aristotle
