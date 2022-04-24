@@ -1,3 +1,3 @@
-_**The energy of the mind is the essence of life.**_
+_**Begin at once to live and count each separate day as a separate life.**_
 
-Aristotle
+Seneca the Younger
