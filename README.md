@@ -1,3 +1,3 @@
-_**They can do all because they think they can.**_
+_**Bad times have a scientific value. These are occasions a good learner would not miss.**_
 
-Virgil
+Ralph Waldo Emerson
