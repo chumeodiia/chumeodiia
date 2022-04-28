@@ -1,3 +1,3 @@
-_**Bad times have a scientific value. These are occasions a good learner would not miss.**_
+_**We can do no great things, only small things with great love.**_
 
-Ralph Waldo Emerson
+Mother Teresa
