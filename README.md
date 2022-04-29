@@ -1,3 +1,3 @@
-_**We can do no great things, only small things with great love.**_
+_**Knowledge without justice ought to be called cunning rather than wisdom.**_
 
-Mother Teresa
+Plato
