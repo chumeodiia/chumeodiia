@@ -1,3 +1,3 @@
-_**You cannot find yourself by going into the past. You can find yourself by coming into the present.**_
+_**We don't receive wisdom; we must discover it for ourselves after a journey that no one can take for us or spare us.**_
 
-Eckhart Tolle
+Marcel Proust
