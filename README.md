@@ -1,3 +1,3 @@
-_**We don't receive wisdom; we must discover it for ourselves after a journey that no one can take for us or spare us.**_
+_**Great minds discuss ideas; average minds discuss events; small minds discuss people.**_
 
-Marcel Proust
+Eleanor Roosevelt
