@@ -1,3 +1,3 @@
-_**Stay committed to your decisions, but stay flexible in your approach.**_
+_**A friend is a gift you give yourself.**_
 
-Tony Robbins
+Robert Louis Stevenson
