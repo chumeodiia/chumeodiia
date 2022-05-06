@@ -1,3 +1,3 @@
-_**A friend is a gift you give yourself.**_
+_**If we did the things we are capable of, we would astound ourselves.**_
 
-Robert Louis Stevenson
+Thomas Edison
