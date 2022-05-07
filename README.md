@@ -1,3 +1,3 @@
-_**If we did the things we are capable of, we would astound ourselves.**_
+_**Your friend is your needs answered.**_
 
-Thomas Edison
+Kahlil Gibran
