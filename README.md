@@ -1,3 +1,3 @@
-_**Your friend is your needs answered.**_
+_**Try not to become a man of success, but rather try to become a man of value.**_
 
-Kahlil Gibran
+Albert Einstein
