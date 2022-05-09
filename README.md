@@ -1,3 +1,3 @@
-_**Try not to become a man of success, but rather try to become a man of value.**_
+_**Not engaging in ignorance is wisdom.**_
 
-Albert Einstein
+Bodhidharma
