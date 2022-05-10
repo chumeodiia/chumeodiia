@@ -1,3 +1,3 @@
-_**Not engaging in ignorance is wisdom.**_
+_**I cannot always control what goes on outside. But I can always control what goes on inside.**_
 
-Bodhidharma
+Wayne Dyer
