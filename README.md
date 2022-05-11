@@ -1,3 +1,3 @@
-_**I cannot always control what goes on outside. But I can always control what goes on inside.**_
+_**It is with words as with sunbeams. The more they are condensed, the deeper they burn.**_
 
-Wayne Dyer
+Robert Southey
