@@ -1,3 +1,3 @@
-_**It is with words as with sunbeams. The more they are condensed, the deeper they burn.**_
+_**The journey of a thousand miles begins with one step.**_
 
-Robert Southey
+Laozi
