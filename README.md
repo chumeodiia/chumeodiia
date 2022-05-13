@@ -1,3 +1,3 @@
-_**The journey of a thousand miles begins with one step.**_
+_**Reviewing what you have learned and learning anew, you are fit to be a teacher.**_
 
-Laozi
+Confucius
