@@ -1,3 +1,3 @@
-_**Reviewing what you have learned and learning anew, you are fit to be a teacher.**_
+_**Chaos is inherent in all compounded things. Strive on with diligence.**_
 
-Confucius
+Buddha
