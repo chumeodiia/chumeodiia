@@ -1,3 +1,3 @@
-_**Chaos is inherent in all compounded things. Strive on with diligence.**_
+_**The only true wisdom is in knowing you know nothing.**_
 
-Buddha
+Isocrates
