@@ -1,3 +1,3 @@
-_**The only true wisdom is in knowing you know nothing.**_
+_**It is a characteristic of wisdom not to do desperate things.**_
 
-Isocrates
+Henry David Thoreau
