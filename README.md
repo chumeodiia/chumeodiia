@@ -1,3 +1,3 @@
-_**It is in your moments of decision that your destiny is shaped.**_
+_**The beginning of knowledge is the discovery of something we do not understand.**_
 
-Tony Robbins
+Frank Herbert
