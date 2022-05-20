@@ -1,3 +1,3 @@
-_**The beginning of knowledge is the discovery of something we do not understand.**_
+_**The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition.**_
 
-Frank Herbert
+Honoré de Balzac
