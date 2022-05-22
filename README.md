@@ -1,3 +1,3 @@
-_**Remember that failure is an event, not a person.**_
+_**What the caterpillar calls the end of the world, the master calls a butterfly.**_
 
-Zig Ziglar
+Richard Bach
