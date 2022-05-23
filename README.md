@@ -1,3 +1,3 @@
-_**What the caterpillar calls the end of the world, the master calls a butterfly.**_
+_**Difficulties increase the nearer we get to the goal.**_
 
-Richard Bach
+Johann Wolfgang von Goethe
