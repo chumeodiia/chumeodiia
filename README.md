@@ -1,3 +1,3 @@
-_**Difficulties increase the nearer we get to the goal.**_
+_**When in doubt, don't.**_
 
-Johann Wolfgang von Goethe
+Benjamin Franklin
