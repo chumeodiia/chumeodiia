@@ -1,3 +1,3 @@
-_**When in doubt, don't.**_
+_**Genius unrefined resembles a flash of lightning, but wisdom is like the sun.**_
 
-Benjamin Franklin
+Franz Grillparzer
