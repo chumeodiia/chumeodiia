@@ -1,3 +1,3 @@
-_**Genius unrefined resembles a flash of lightning, but wisdom is like the sun.**_
+_**You'll see it when you believe it.**_
 
-Franz Grillparzer
+Wayne Dyer
