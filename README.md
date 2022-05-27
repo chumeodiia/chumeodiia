@@ -1,3 +1,3 @@
-_**You'll see it when you believe it.**_
+_**Don't turn away from possible futures before you're certain you don't have anything to learn from them.**_
 
-Wayne Dyer
+Richard Bach
