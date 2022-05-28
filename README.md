@@ -1,3 +1,3 @@
-_**Don't turn away from possible futures before you're certain you don't have anything to learn from them.**_
+_**Friendship is one mind in two bodies.**_
 
-Richard Bach
+Mencius
