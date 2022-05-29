@@ -1,3 +1,3 @@
-_**Friendship is one mind in two bodies.**_
+_**Wisdom and penetration are the fruit of experience, not the lessons of retirement and leisure. Great necessities call out great virtues.**_
 
-Mencius
+Abigail Adams
