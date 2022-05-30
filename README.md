@@ -1,3 +1,3 @@
-_**Wisdom and penetration are the fruit of experience, not the lessons of retirement and leisure. Great necessities call out great virtues.**_
+_**Imagination is the highest kite one can fly.**_
 
-Abigail Adams
+Lauren Bacall
