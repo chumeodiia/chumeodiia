@@ -1,3 +1,3 @@
-_**Imagination is the highest kite one can fly.**_
+_**Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence.**_
 
-Lauren Bacall
+George Washington
