@@ -1,3 +1,3 @@
-_**Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence.**_
+_**Each man has his own vocation; his talent is his call. There is one direction in which all space is open to him.**_
 
-George Washington
+Ralph Waldo Emerson
