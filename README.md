@@ -1,3 +1,3 @@
-_**Each man has his own vocation; his talent is his call. There is one direction in which all space is open to him.**_
+_**The future is completely open, and we are writing it moment to moment.**_
 
-Ralph Waldo Emerson
+Pema Chödrön
