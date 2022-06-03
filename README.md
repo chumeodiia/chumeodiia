@@ -1,3 +1,3 @@
-_**The future is completely open, and we are writing it moment to moment.**_
+_**Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more**_
 
-Pema Chödrön
+Tony Robbins
