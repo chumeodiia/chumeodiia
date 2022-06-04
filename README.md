@@ -1,3 +1,3 @@
-_**Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more**_
+_**The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart.**_
 
-Tony Robbins
+Helen Keller
