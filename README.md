@@ -1,3 +1,3 @@
-_**The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart.**_
+_**Without some goals and some efforts to reach it, no man can live.**_
 
-Helen Keller
+John Dewey
