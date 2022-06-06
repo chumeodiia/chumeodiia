@@ -1,3 +1,3 @@
-_**Without some goals and some efforts to reach it, no man can live.**_
+_**With the realization of one's own potential and self-confidence in one's ability, one can build a better world.**_
 
-John Dewey
+Dalai Lama
