@@ -1,3 +1,3 @@
-_**With the realization of one's own potential and self-confidence in one's ability, one can build a better world.**_
+_**We respect our elders. There is wisdom that comes from experience, and I am not going to stop learning from wise counsel.**_
 
-Dalai Lama
+Marcia Fudge
