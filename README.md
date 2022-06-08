@@ -1,3 +1,3 @@
-_**We respect our elders. There is wisdom that comes from experience, and I am not going to stop learning from wise counsel.**_
+_**Love is the only force capable of transforming an enemy into a friend.**_
 
-Marcia Fudge
+Martin Luther King Jr.
