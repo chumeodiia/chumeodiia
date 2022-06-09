@@ -1,3 +1,3 @@
-_**Love is the only force capable of transforming an enemy into a friend.**_
+_**Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing.**_
 
-Martin Luther King Jr.
+Elie Wiesel
