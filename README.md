@@ -1,3 +1,3 @@
-_**Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing.**_
+_**Character is like a tree and reputation like a shadow. The shadow is what we think of it; the tree is the real thing.**_
 
-Elie Wiesel
+Abraham Lincoln
