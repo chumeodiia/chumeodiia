@@ -1,3 +1,3 @@
-_**Character is like a tree and reputation like a shadow. The shadow is what we think of it; the tree is the real thing.**_
+_**Goals are the fuel in the furnace of achievement.**_
 
-Abraham Lincoln
+Brian Tracy
