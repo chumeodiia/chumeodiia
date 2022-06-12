@@ -1,3 +1,3 @@
-_**Goals are the fuel in the furnace of achievement.**_
+_**Something opens our wings. Something makes boredom and hurt disappear. Someone fills the cup in front of us: We taste only sacredness.**_
 
-Brian Tracy
+Rumi
