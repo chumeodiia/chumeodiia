@@ -1,3 +1,3 @@
-_**Life without love is like a tree without blossoms or fruit.**_
+_**Truth, and goodness, and beauty are but different faces of the same all.**_
 
-Kahlil Gibran
+Ralph Waldo Emerson
