@@ -1,3 +1,3 @@
-_**He has no enemies, but is intensely disliked by his friends.**_
+_**Wisdom, compassion, and courage are the three universally recognized moral qualities of men.**_
 
-Oscar Wilde
+Confucius
