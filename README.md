@@ -1,3 +1,3 @@
-_**The man who trusts men will make fewer mistakes than he who distrusts them.**_
+_**A tree is known by its fruit; a man by his deeds. A good deed is never lost; he who sows courtesy reaps friendship, and he who plants kindness gathers love.**_
 
-Camillo Benso, Count of Cavour
+Basil of Caesarea
