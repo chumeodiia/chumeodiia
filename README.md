@@ -1,3 +1,3 @@
-_**There is no scarcity of opportunity to make a living at what you love; there's only scarcity of resolve to make it happen.**_
+_**I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex.**_
 
-Wayne Dyer
+Kurt Vonnegut
