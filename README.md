@@ -1,3 +1,3 @@
-_**I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex.**_
+_**All that we see or seem is but a dream within a dream.**_
 
-Kurt Vonnegut
+Edgar Allan Poe
