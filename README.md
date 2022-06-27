@@ -1,3 +1,3 @@
-_**All that we see or seem is but a dream within a dream.**_
+_**You will not be punished for your anger; you will be punished by your anger.**_
 
-Edgar Allan Poe
+Buddha
