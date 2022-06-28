@@ -1,3 +1,3 @@
-_**You will not be punished for your anger; you will be punished by your anger.**_
+_**Mediocrity knows nothing higher than itself, but talent instantly recognizes genius.**_
 
-Buddha
+Arthur Conan Doyle
