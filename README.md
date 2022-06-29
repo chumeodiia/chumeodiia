@@ -1,3 +1,3 @@
-_**Mediocrity knows nothing higher than itself, but talent instantly recognizes genius.**_
+_**Wisdom consists of the anticipation of consequences.**_
 
-Arthur Conan Doyle
+Norman Cousins
