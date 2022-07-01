@@ -1,3 +1,3 @@
-_**Let your hook always be cast; in the pool where you least expect it, there will be a fish.**_
+_**It is through science that we prove, but through intuition that we discover.**_
 
-Ovid
+Henri Poincaré
