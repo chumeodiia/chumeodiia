@@ -1,3 +1,3 @@
-_**The problem with Google is you have 360 degrees of omnidirectional information on a linear basis, but the algorithms for irony and ambiguity are not there. And those are the algorithms of wisdom.**_
+_**It is very easy to forgive others their mistakes; it takes more grit to forgive them for having witnessed your own.**_
 
-William Hurt
+Jessamyn West
