@@ -1,3 +1,3 @@
-_**It is very easy to forgive others their mistakes; it takes more grit to forgive them for having witnessed your own.**_
+_**Quality means doing it right when no one is looking.**_
 
-Jessamyn West
+Henry Ford
