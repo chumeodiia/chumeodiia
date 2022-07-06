@@ -1,3 +1,3 @@
-_**Friendship is an arrangement by which we undertake to exchange small favors for big ones.**_
+_**Consult not your fears but your hopes and your dreams. Think not about your frustrations, but about your unfulfilled potential. Concern yourself not with what you tried and failed in, but with what it is still possible for you to do.**_
 
-Montesquieu
+Pope John XXIII
