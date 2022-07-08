@@ -1,3 +1,3 @@
-_**One fails forward toward success.**_
+_**Technology is anything that wasn't around when you were born.**_
 
-Charles F. Kettering
+Man Ray
