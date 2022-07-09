@@ -1,3 +1,3 @@
-_**Technology is anything that wasn't around when you were born.**_
+_**We should all be thankful for those people who rekindle the inner spirit.**_
 
-Man Ray
+Albert Schweitzer
