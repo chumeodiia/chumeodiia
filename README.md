@@ -1,3 +1,3 @@
-_**We should all be thankful for those people who rekindle the inner spirit.**_
+_**A person who never made a mistake never tried anything new.**_
 
-Albert Schweitzer
+Albert Einstein
