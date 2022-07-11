@@ -1,3 +1,3 @@
-_**A person who never made a mistake never tried anything new.**_
+_**There is never enough time to do everything, but there is always enough time to do the most important thing.**_
 
-Albert Einstein
+Brian Tracy
