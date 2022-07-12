@@ -1,3 +1,3 @@
-_**There is never enough time to do everything, but there is always enough time to do the most important thing.**_
+_**Excellence, then, is a state concerned with choice, lying in a mean, relative to us, this being determined by reason and in the way in which the man of practical wisdom would determine it.**_
 
-Brian Tracy
+Aristotle
