@@ -1,3 +1,3 @@
-_**Excellence, then, is a state concerned with choice, lying in a mean, relative to us, this being determined by reason and in the way in which the man of practical wisdom would determine it.**_
+_**How far that little candle throws its beams! So shines a good deed in a naughty world.**_
 
-Aristotle
+William Shakespeare
