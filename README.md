@@ -1,3 +1,3 @@
-_**How far that little candle throws its beams! So shines a good deed in a naughty world.**_
+_**Life is so constructed that an event does not, cannot, will not, match the expectation.**_
 
-William Shakespeare
+Charlotte Brontë
