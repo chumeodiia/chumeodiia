@@ -1,3 +1,3 @@
-_**Life is so constructed that an event does not, cannot, will not, match the expectation.**_
+_**There is never enough time to do everything, but there is always enough time to do the most important thing.**_
 
-Charlotte Brontë
+Brian Tracy
