@@ -1,3 +1,3 @@
-_**There is never enough time to do everything, but there is always enough time to do the most important thing.**_
+_**He who wishes to secure the good of others, has already secured his own.**_
 
-Brian Tracy
+Confucius
