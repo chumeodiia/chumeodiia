@@ -1,3 +1,3 @@
-_**He who wishes to secure the good of others, has already secured his own.**_
+_**Fans don't boo nobodies.**_
 
-Confucius
+Reggie Jackson (basketball, born 1990)
