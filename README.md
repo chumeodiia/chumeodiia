@@ -1,3 +1,3 @@
-_**Fans don't boo nobodies.**_
+_**Keep silence for the most part, and speak only when you must, and then briefly.**_
 
-Reggie Jackson (basketball, born 1990)
+Epictetus
