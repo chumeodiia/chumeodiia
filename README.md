@@ -1,3 +1,3 @@
-_**Keep silence for the most part, and speak only when you must, and then briefly.**_
+_**Let yourself be silently drawn by the stronger pull of what you really love.**_
 
-Epictetus
+Rumi
