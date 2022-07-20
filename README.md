@@ -1,3 +1,3 @@
-_**Let yourself be silently drawn by the stronger pull of what you really love.**_
+_**Sustaining true friendship is a lot more challenging than we give it credit for.**_
 
-Rumi
+Mariella Frostrup
