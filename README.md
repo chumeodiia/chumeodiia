@@ -1,3 +1,3 @@
-_**Sustaining true friendship is a lot more challenging than we give it credit for.**_
+_**The trick is in what one emphasizes. We either make ourselves miserable, or we make ourselves happy. The amount of work is the same.**_
 
-Mariella Frostrup
+Carlos Castaneda
