@@ -1,3 +1,3 @@
-_**You can't win unless you learn how to lose.**_
+_**At the center of your being, you have the answer; you know who you are, and you know what you want.**_
 
-Kareem Abdul-Jabbar
+Laozi
