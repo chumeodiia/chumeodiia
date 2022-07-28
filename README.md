@@ -1,3 +1,3 @@
-_**At the center of your being, you have the answer; you know who you are, and you know what you want.**_
+_**We are all faced with a series of great opportunities brilliantly disguised as impossible situations.**_
 
-Laozi
+Chuck Swindoll
