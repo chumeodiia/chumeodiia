@@ -1,3 +1,3 @@
-_**We are all faced with a series of great opportunities brilliantly disguised as impossible situations.**_
+_**All truths are easy to understand once they are discovered; the point is to discover them.**_
 
-Chuck Swindoll
+Galileo Galilei
