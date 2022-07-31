@@ -1,3 +1,3 @@
-_**When in doubt, don't.**_
+_**Imagination is the highest kite one can fly.**_
 
-Benjamin Franklin
+Lauren Bacall
