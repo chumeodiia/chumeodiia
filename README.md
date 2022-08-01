@@ -1,3 +1,3 @@
-_**Imagination is the highest kite one can fly.**_
+_**Belief consists in accepting the affirmations of the soul; Unbelief, in denying them.**_
 
-Lauren Bacall
+Ralph Waldo Emerson
