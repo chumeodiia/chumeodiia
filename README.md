@@ -1,3 +1,3 @@
-_**Belief consists in accepting the affirmations of the soul; Unbelief, in denying them.**_
+_**Rejoicing in our joy, not suffering over our suffering, makes someone a friend.**_
 
-Ralph Waldo Emerson
+Friedrich Nietzsche
