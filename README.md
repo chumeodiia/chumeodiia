@@ -1,3 +1,3 @@
-_**Rejoicing in our joy, not suffering over our suffering, makes someone a friend.**_
+_**Love is a friendship set to music.**_
 
-Friedrich Nietzsche
+Joseph Campbell
