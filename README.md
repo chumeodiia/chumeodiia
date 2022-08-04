@@ -1,3 +1,3 @@
-_**Love is a friendship set to music.**_
+_**Much wisdom often goes with fewer words.**_
 
-Joseph Campbell
+Sophocles
