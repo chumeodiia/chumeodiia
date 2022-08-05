@@ -1,3 +1,3 @@
-_**Much wisdom often goes with fewer words.**_
+_**Friends are those rare people who ask how we are and then wait to hear the answer.**_
 
-Sophocles
+Ed Cunningham
