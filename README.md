@@ -1,3 +1,3 @@
-_**Friends are those rare people who ask how we are and then wait to hear the answer.**_
+_**Reason and free inquiry are the only effectual agents against error.**_
 
-Ed Cunningham
+Thomas Jefferson
