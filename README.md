@@ -1,3 +1,3 @@
-_**Reason and free inquiry are the only effectual agents against error.**_
+_**Don't settle for a relationship that won't let you be yourself.**_
 
-Thomas Jefferson
+Oprah Winfrey
