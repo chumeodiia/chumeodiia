@@ -1,3 +1,3 @@
-_**Don't settle for a relationship that won't let you be yourself.**_
+_**Every friendship is different because everyone's personality is different.**_
 
-Oprah Winfrey
+Nargis Fakhri
