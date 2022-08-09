@@ -1,3 +1,3 @@
-_**Every friendship is different because everyone's personality is different.**_
+_**One man practicing sportsmanship is far better than a hundred teaching it.**_
 
-Nargis Fakhri
+Knute Rockne
