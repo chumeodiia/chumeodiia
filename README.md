@@ -1,3 +1,3 @@
-_**One man practicing sportsmanship is far better than a hundred teaching it.**_
+_**Never promise more than you can perform.**_
 
-Knute Rockne
+Publilius Syrus
