@@ -1,3 +1,3 @@
-_**Never promise more than you can perform.**_
+_**Some people thrive on huge, dramatic change. Some people prefer the slow and steady route. Do what's right for you.**_
 
-Publilius Syrus
+Julie Morgenstern
