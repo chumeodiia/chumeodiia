@@ -1,3 +1,3 @@
-_**We read the world wrong and say that it deceives us.**_
+_**He that is giddy thinks the world turns round.**_
 
-Rabindranath Tagore
+William Shakespeare
