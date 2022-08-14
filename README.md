@@ -1,3 +1,3 @@
-_**He that is giddy thinks the world turns round.**_
+_**The wisest men follow their own direction.**_
 
-William Shakespeare
+Euripides
