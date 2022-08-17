@@ -1,3 +1,3 @@
-_**Anybody can make history. Only a great man can write it.**_
+_**A ruffled mind makes a restless pillow.**_
 
-Oscar Wilde
+Charlotte Brontë
