@@ -1,3 +1,3 @@
-_**A ruffled mind makes a restless pillow.**_
+_**Great minds discuss ideas; average minds discuss events; small minds discuss people.**_
 
-Charlotte Brontë
+Eleanor Roosevelt
