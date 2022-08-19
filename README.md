@@ -1,3 +1,3 @@
-_**Great minds discuss ideas; average minds discuss events; small minds discuss people.**_
+_**Ability is what you're capable of doing. Motivation determines what you do. Attitude determines how well you do it.**_
 
-Eleanor Roosevelt
+Lou Holtz
