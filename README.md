@@ -1,3 +1,3 @@
-_**Ability is what you're capable of doing. Motivation determines what you do. Attitude determines how well you do it.**_
+_**If you're changing the world, you're working on important things. You're excited to get up in the morning.**_
 
-Lou Holtz
+Larry Page
