@@ -1,3 +1,3 @@
-_**Eighty percent of success is showing up.**_
+_**Pick battles big enough to matter, small enough to win.**_
 
-Woody Allen
+Jonathan Kozol
