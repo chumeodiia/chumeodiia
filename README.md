@@ -1,3 +1,3 @@
-_**Pick battles big enough to matter, small enough to win.**_
+_**The truest wisdom is a resolute determination.**_
 
-Jonathan Kozol
+Napoleon
