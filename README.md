@@ -1,3 +1,3 @@
-_**The truest wisdom is a resolute determination.**_
+_**Just trust yourself, then you will know how to live.**_
 
-Napoleon
+Johann Wolfgang von Goethe
