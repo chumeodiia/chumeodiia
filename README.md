@@ -1,3 +1,3 @@
-_**Just trust yourself, then you will know how to live.**_
+_**The beginning of wisdom is found in doubting; by doubting we come to the question, and by seeking we may come upon the truth.**_
 
-Johann Wolfgang von Goethe
+Peter Abelard
