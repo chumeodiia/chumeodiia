@@ -1,3 +1,3 @@
-_**The beginning of wisdom is found in doubting; by doubting we come to the question, and by seeking we may come upon the truth.**_
+_**Change will not come if we wait for some other person or some other time. We are the ones we've been waiting for. We are the change that we seek.**_
 
-Peter Abelard
+Barack Obama
