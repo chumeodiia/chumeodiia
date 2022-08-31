@@ -1,3 +1,3 @@
-_**Love is the flower you've got to let grow.**_
+_**A man sees in the world what he carries in his heart.**_
 
-John Lennon
+Johann Wolfgang von Goethe
