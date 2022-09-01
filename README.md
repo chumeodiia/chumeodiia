@@ -1,3 +1,3 @@
-_**A man sees in the world what he carries in his heart.**_
+_**A friend is a gift you give yourself.**_
 
-Johann Wolfgang von Goethe
+Robert Louis Stevenson
