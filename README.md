@@ -1,3 +1,3 @@
-_**A friend is a gift you give yourself.**_
+_**Much wisdom often goes with fewest words.**_
 
-Robert Louis Stevenson
+Sophocles
