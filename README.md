@@ -1,3 +1,3 @@
-_**Much wisdom often goes with fewest words.**_
+_**Just be patient. Let the game come to you. Don't rush. Be quick, but don't hurry.**_
 
-Sophocles
+Earl Monroe
