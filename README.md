@@ -1,3 +1,3 @@
-_**Just be patient. Let the game come to you. Don't rush. Be quick, but don't hurry.**_
+_**Perseverance is a great element of success. If you only knock long enough and loud enough at the gate, you are sure to wake up somebody.**_
 
-Earl Monroe
+Henry Wadsworth Longfellow
