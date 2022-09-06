@@ -1,3 +1,3 @@
-_**Much wisdom often goes with fewer words.**_
+_**Don't wait. The time will never be just right.**_
 
-Sophocles
+Napoleon Hill
