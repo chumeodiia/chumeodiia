@@ -1,3 +1,3 @@
-_**Don't wait. The time will never be just right.**_
+_**The only Zen you find on the tops of mountains is the Zen you bring up there.**_
 
-Napoleon Hill
+Robert M. Pirsig
