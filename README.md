@@ -1,3 +1,3 @@
-_**The only Zen you find on the tops of mountains is the Zen you bring up there.**_
+_**Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life.**_
 
-Robert M. Pirsig
+Lord Byron
