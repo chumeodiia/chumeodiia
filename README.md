@@ -1,3 +1,3 @@
-_**Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life.**_
+_**An invincible determination can accomplish almost anything and in this lies the great distinction between great men and little men.**_
 
-Lord Byron
+Thomas Fuller
