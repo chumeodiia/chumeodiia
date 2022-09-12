@@ -1,3 +1,3 @@
-_**Take rest; a field that has rested gives a bountiful crop.**_
+_**Perseverance is a great element of success. If you only knock long enough and loud enough at the gate, you are sure to wake up somebody.**_
 
-Ovid
+Henry Wadsworth Longfellow
