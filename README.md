@@ -1,3 +1,3 @@
-_**Perseverance is a great element of success. If you only knock long enough and loud enough at the gate, you are sure to wake up somebody.**_
+_**Even if you're on the right track, you'll get run over if you just sit there.**_
 
-Henry Wadsworth Longfellow
+Will Rogers
