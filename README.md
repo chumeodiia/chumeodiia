@@ -1,3 +1,3 @@
-_**Even if you're on the right track, you'll get run over if you just sit there.**_
+_**He who wishes to secure the good of others, has already secured his own.**_
 
-Will Rogers
+Confucius
