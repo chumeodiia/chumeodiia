@@ -1,3 +1,3 @@
-_**Never accept ultimatums, conventional wisdom, or absolutes.**_
+_**If I were two-faced, would I be wearing this one?**_
 
-Christopher Reeve
+Abraham Lincoln
