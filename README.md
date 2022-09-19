@@ -1,3 +1,3 @@
-_**Friendship is a very taxing and arduous form of leisure activity.**_
+_**When in doubt, tell the truth.**_
 
-Mortimer J. Adler
+Mark Twain
