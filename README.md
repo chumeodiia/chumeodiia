@@ -1,3 +1,3 @@
-_**When in doubt, tell the truth.**_
+_**Fear makes strangers of people who would be friends.**_
 
-Mark Twain
+Shirley MacLaine
