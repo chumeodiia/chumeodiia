@@ -1,3 +1,3 @@
-_**If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher.**_
+_**To be tested is good. The challenged life may be the best therapist.**_
 
-Pema Chödrön
+Gail Sheehy
