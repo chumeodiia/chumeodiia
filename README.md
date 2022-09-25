@@ -1,3 +1,3 @@
-_**What we think, we become.**_
+_**Whoever is happy will make others happy, too.**_
 
-Buddha
+Mark Twain
