@@ -1,3 +1,3 @@
-_**Whoever is happy will make others happy, too.**_
+_**A friend in power is a friend lost.**_
 
-Mark Twain
+Henry Adams
