@@ -1,3 +1,3 @@
-_**A friend in power is a friend lost.**_
+_**This is why I loved technology: if you used it right, it could give you power and privacy.**_
 
-Henry Adams
+Cory Doctorow
