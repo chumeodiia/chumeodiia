@@ -1,3 +1,3 @@
-_**This is why I loved technology: if you used it right, it could give you power and privacy.**_
+_**Beware of missing chances; otherwise it may be altogether too late someday.**_
 
-Cory Doctorow
+Franz Liszt
