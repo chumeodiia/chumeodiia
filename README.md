@@ -1,3 +1,3 @@
-_**Beware of missing chances; otherwise it may be altogether too late someday.**_
+_**The greatest good you can do for another is not just share your riches but reveal to them their own.**_
 
-Franz Liszt
+Benjamin Disraeli
