@@ -1,3 +1,3 @@
-_**The greatest good you can do for another is not just share your riches but reveal to them their own.**_
+_**The higher we are placed, the more humbly we should walk.**_
 
-Benjamin Disraeli
+Cicero
