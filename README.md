@@ -1,3 +1,3 @@
-_**The higher we are placed, the more humbly we should walk.**_
+_**Life shrinks or expands in proportion to one's courage.**_
 
-Cicero
+Anaïs Nin
