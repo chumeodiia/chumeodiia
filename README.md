@@ -1,3 +1,3 @@
-_**Life shrinks or expands in proportion to one's courage.**_
+_**What is not started today is never finished tomorrow.**_
 
-Anaïs Nin
+Johann Wolfgang von Goethe
