@@ -1,3 +1,3 @@
-_**What is not started today is never finished tomorrow.**_
+_**The greatest healing therapy is friendship and love.**_
 
-Johann Wolfgang von Goethe
+Hubert Humphrey
