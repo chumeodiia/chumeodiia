@@ -1,3 +1,3 @@
-_**The greatest healing therapy is friendship and love.**_
+_**Excellence is not a skill. It is an attitude.**_
 
-Hubert Humphrey
+Ralph Marston
