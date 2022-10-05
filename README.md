@@ -1,3 +1,3 @@
-_**Excellence is not a skill. It is an attitude.**_
+_**You are a product of your environment. So choose the environment that will best develop you toward your objective. Analyze your life in terms of its environment. Are the things around you helping you toward success - or are they holding you back?**_
 
-Ralph Marston
+W. Clement Stone
