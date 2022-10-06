@@ -1,3 +1,3 @@
-_**You are a product of your environment. So choose the environment that will best develop you toward your objective. Analyze your life in terms of its environment. Are the things around you helping you toward success - or are they holding you back?**_
+_**Gratitude is not only the greatest of virtues, but the parent of all the others.**_
 
-W. Clement Stone
+Cicero
