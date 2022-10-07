@@ -1,3 +1,3 @@
-_**Gratitude is not only the greatest of virtues, but the parent of all the others.**_
+_**Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it.**_
 
-Cicero
+Bruce Lee
