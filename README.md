@@ -1,3 +1,3 @@
-_**Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it.**_
+_**Fear not for the future, weep not for the past.**_
 
-Bruce Lee
+Percy Bysshe Shelley
