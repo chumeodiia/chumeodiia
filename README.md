@@ -1,3 +1,3 @@
-_**Fear not for the future, weep not for the past.**_
+_**To accomplish great things, we must dream as well as act.**_
 
-Percy Bysshe Shelley
+Anatole France
