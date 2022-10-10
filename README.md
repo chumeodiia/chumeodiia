@@ -1,3 +1,3 @@
-_**To accomplish great things, we must dream as well as act.**_
+_**Peace comes from within. Do not seek it without.**_
 
-Anatole France
+Buddha
