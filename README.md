@@ -1,3 +1,3 @@
-_**Peace comes from within. Do not seek it without.**_
+_**Either I will find a way, or I will make one.**_
 
-Buddha
+Philip Sidney
