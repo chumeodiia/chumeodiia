@@ -1,3 +1,3 @@
-_**Either I will find a way, or I will make one.**_
+_**In romance, we feel the need to zoom in and expound on our partner's foibles in intimate detail; in friendship, we tend to do the opposite, avoiding confrontation through fear, lethargy or both.**_
 
-Philip Sidney
+Mariella Frostrup
