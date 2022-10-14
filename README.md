@@ -1,3 +1,3 @@
-_**Knowing your own darkness is the best method for dealing with the darkness of other people.**_
+_**Fine words and an insinuating appearance are seldom associated with true virtue**_
 
-Carl Jung
+Confucius
