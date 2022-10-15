@@ -1,3 +1,3 @@
-_**Fine words and an insinuating appearance are seldom associated with true virtue**_
+_**Talent is God-given; be humble. Fame is man-given; be thankful. Conceit is self-given; be careful.**_
 
-Confucius
+Harvey Mackay
