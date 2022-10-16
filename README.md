@@ -1,3 +1,3 @@
-_**Talent is God-given; be humble. Fame is man-given; be thankful. Conceit is self-given; be careful.**_
+_**The least movement is of importance to all nature. The entire ocean is affected by a pebble.**_
 
-Harvey Mackay
+Blaise Pascal
