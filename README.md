@@ -1,3 +1,3 @@
-_**Where there is great love, there are always miracles.**_
+_**If the stars should appear but one night every thousand years how man would marvel and adore.**_
 
-Willa Cather
+Ralph Waldo Emerson
