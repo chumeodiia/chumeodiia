@@ -1,3 +1,3 @@
-_**If the stars should appear but one night every thousand years how man would marvel and adore.**_
+_**The function of wisdom is to discriminate between good and evil.**_
 
-Ralph Waldo Emerson
+Cicero
