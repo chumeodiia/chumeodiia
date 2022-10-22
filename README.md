@@ -1,3 +1,3 @@
-_**Time is the most valuable thing a man can spend.**_
+_**Make the best use of what is in your power and take the rest as it happens.**_
 
-Theophrastus
+Epictetus
