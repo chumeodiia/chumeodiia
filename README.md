@@ -1,3 +1,3 @@
-_**Make the best use of what is in your power and take the rest as it happens.**_
+_**A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves.**_
 
-Epictetus
+Laozi
