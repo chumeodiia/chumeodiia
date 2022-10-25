@@ -1,3 +1,3 @@
-_**Nature and books belong to the eyes that see them.**_
+_**He who knows others is wise. He who knows himself is enlightened.**_
 
-Ralph Waldo Emerson
+Laozi
