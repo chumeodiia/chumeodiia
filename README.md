@@ -1,3 +1,3 @@
-_**He who knows others is wise. He who knows himself is enlightened.**_
+_**We are not animals. We are not a product of what has happened to us in our past. We have the power of choice.**_
 
-Laozi
+Stephen Covey
