@@ -1,3 +1,3 @@
-_**We are not animals. We are not a product of what has happened to us in our past. We have the power of choice.**_
+_**It is on our failures that we base a new and different and better success.**_
 
-Stephen Covey
+Havelock Ellis
