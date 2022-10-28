@@ -1,3 +1,3 @@
-_**It is on our failures that we base a new and different and better success.**_
+_**Computers are useless. They can only give you answers.**_
 
-Havelock Ellis
+Pablo Picasso
