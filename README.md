@@ -1,3 +1,3 @@
-_**Computers are useless. They can only give you answers.**_
+_**It is a common experience that a problem difficult at night is resolved in the morning after the committee of sleep has worked on it.**_
 
-Pablo Picasso
+John Steinbeck
