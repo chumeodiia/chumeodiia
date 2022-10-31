@@ -1,3 +1,3 @@
-_**A lot of people give up just before theyre about to make it. You know you never know when that next obstacle is going to be the last one.**_
+_**No one saves us but ourselves. No one can and no one may. We ourselves must walk the path.**_
 
-Chuck Norris
+Buddha
