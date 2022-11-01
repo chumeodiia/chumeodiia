@@ -1,3 +1,3 @@
-_**No one saves us but ourselves. No one can and no one may. We ourselves must walk the path.**_
+_**The key is to keep company only with people who uplift you, whose presence calls forth your best.**_
 
-Buddha
+Epictetus
