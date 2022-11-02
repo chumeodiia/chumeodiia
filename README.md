@@ -1,3 +1,3 @@
-_**The key is to keep company only with people who uplift you, whose presence calls forth your best.**_
+_**We are masters of the unsaid words, but slaves of those we let slip out.**_
 
-Epictetus
+Winston Churchill
