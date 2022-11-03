@@ -1,3 +1,3 @@
-_**We are masters of the unsaid words, but slaves of those we let slip out.**_
+_**We make a living by what we get, but we make a life by what we give.**_
 
 Winston Churchill
