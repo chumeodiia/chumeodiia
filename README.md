@@ -1,3 +1,3 @@
-_**Excellence is not a skill. It is an attitude.**_
+_**This is the final test of a gentleman: his respect for those who can be of no possible value to him.**_
 
-Ralph Marston
+William Lyon Phelps
