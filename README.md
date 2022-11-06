@@ -1,3 +1,3 @@
-_**This is the final test of a gentleman: his respect for those who can be of no possible value to him.**_
+_**Those who cannot learn from history are doomed to repeat it.**_
 
-William Lyon Phelps
+George Santayana
