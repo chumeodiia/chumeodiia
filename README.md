@@ -1,3 +1,3 @@
-_**Those who cannot learn from history are doomed to repeat it.**_
+_**Discipline is the bridge between goals and accomplishment.**_
 
-George Santayana
+Jim Rohn
