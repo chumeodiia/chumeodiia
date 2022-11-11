@@ -1,3 +1,3 @@
-_**The key to transforming our hearts and minds is to have an understanding of how our thoughts and emotions work.**_
+_**And when the world is created, it is created in such a way that those eternal objects of God's loving wisdom become actualities - interacting with one another, relating to God in the finite realm.**_
 
-Dalai Lama
+Rowan Williams
