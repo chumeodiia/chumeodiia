@@ -1,3 +1,3 @@
-_**A wise man can learn more from a foolish question than a fool can learn from a wise answer.**_
+_**Men in general judge more from appearances than from reality. All men have eyes, but few have the gift of penetration.**_
 
-Bruce Lee
+Niccolò Machiavelli
