@@ -1,3 +1,3 @@
-_**Of all the things which wisdom provides to make us entirely happy, much the greatest is the possession of friendship.**_
+_**Knowledge rests not upon truth alone, but upon error also.**_
 
-Epicurus
+Carl Jung
