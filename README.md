@@ -1,3 +1,3 @@
-_**Knowledge rests not upon truth alone, but upon error also.**_
+_**Not every difficult and dangerous thing is suitable for training, but only that which is conducive to success in achieving the object of our effort.**_
 
-Carl Jung
+Epictetus
