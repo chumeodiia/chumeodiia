@@ -1,3 +1,3 @@
-_**So much technology, so little talent.**_
+_**The function of wisdom is to discriminate between good and evil.**_
 
-Vernor Vinge
+Cicero
