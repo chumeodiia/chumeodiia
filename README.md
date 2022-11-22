@@ -1,3 +1,3 @@
-_**The function of wisdom is to discriminate between good and evil.**_
+_**The Superior Man is aware of Righteousness, the inferior man is aware of advantage.**_
 
-Cicero
+Confucius
