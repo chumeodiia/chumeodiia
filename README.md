@@ -1,3 +1,3 @@
-_**The Superior Man is aware of Righteousness, the inferior man is aware of advantage.**_
+_**Talent is God given. Be humble. Fame is man-given. Be grateful. Conceit is self-given. Be careful.**_
 
-Confucius
+John Wooden
