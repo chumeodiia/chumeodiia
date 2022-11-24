@@ -1,3 +1,3 @@
-_**Talent is God given. Be humble. Fame is man-given. Be grateful. Conceit is self-given. Be careful.**_
+_**Peace cannot be kept by force. It can only be achieved by understanding.**_
 
-John Wooden
+Albert Einstein
