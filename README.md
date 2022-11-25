@@ -1,3 +1,3 @@
-_**Peace cannot be kept by force. It can only be achieved by understanding.**_
+_**Silence is a source of great strength.**_
 
-Albert Einstein
+Laozi
