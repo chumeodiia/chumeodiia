@@ -1,3 +1,3 @@
-_**Silence is a source of great strength.**_
+_**All know the way; few actually walk it.**_
 
-Laozi
+Bodhidharma
