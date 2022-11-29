@@ -1,3 +1,3 @@
-_**All know the way; few actually walk it.**_
+_**Accept the challenges so that you can feel the exhilaration of victory.**_
 
-Bodhidharma
+George S. Patton
