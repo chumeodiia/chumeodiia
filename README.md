@@ -1,3 +1,3 @@
-_**Accept the challenges so that you can feel the exhilaration of victory.**_
+_**Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish.**_
 
-George S. Patton
+Ovid
