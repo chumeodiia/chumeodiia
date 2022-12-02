@@ -1,3 +1,3 @@
-_**Ignorance and bungling with love are better than wisdom and skill without.**_
+_**If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher.**_
 
-Henry David Thoreau
+Pema Chödrön
