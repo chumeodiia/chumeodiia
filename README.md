@@ -1,3 +1,3 @@
-_**If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher.**_
+_**And the attitude of faith is the very opposite of clinging to belief, of holding on.**_
 
-Pema Chödrön
+Alan Watts
