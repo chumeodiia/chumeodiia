@@ -1,3 +1,3 @@
-_**And the attitude of faith is the very opposite of clinging to belief, of holding on.**_
+_**A heart well prepared for adversity in bad times hopes, and in good times fears for a change in fortune.**_
 
-Alan Watts
+Horace
