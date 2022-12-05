@@ -1,3 +1,3 @@
-_**A heart well prepared for adversity in bad times hopes, and in good times fears for a change in fortune.**_
+_**Anybody can make history. Only a great man can write it.**_
 
-Horace
+Oscar Wilde
