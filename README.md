@@ -1,3 +1,3 @@
-_**Anybody can make history. Only a great man can write it.**_
+_**There is a wisdom of the head, and a wisdom of the heart.**_
 
-Oscar Wilde
+Charles Dickens
