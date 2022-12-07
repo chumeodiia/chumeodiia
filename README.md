@@ -1,3 +1,3 @@
-_**There is a wisdom of the head, and a wisdom of the heart.**_
+_**Fear makes strangers of people who would be friends.**_
 
-Charles Dickens
+Shirley MacLaine
