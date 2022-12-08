@@ -1,3 +1,3 @@
-_**Fear makes strangers of people who would be friends.**_
+_**Never complain and never explain.**_
 
-Shirley MacLaine
+Benjamin Disraeli
