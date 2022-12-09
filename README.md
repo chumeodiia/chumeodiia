@@ -1,3 +1,3 @@
-_**Never complain and never explain.**_
+_**Positive thinking will let you do everything better than negative thinking will.**_
 
-Benjamin Disraeli
+Zig Ziglar
