@@ -1,3 +1,3 @@
-_**Positive thinking will let you do everything better than negative thinking will.**_
+_**Nothing in life is so exhilarating as to be shot at without result.**_
 
-Zig Ziglar
+Winston Churchill
