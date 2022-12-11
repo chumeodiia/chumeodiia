@@ -1,3 +1,3 @@
-_**Nothing in life is so exhilarating as to be shot at without result.**_
+_**You got to be careful if you don't know where you're going, because you might not get there.**_
 
-Winston Churchill
+Yogi Berra
