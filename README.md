@@ -1,3 +1,3 @@
-_**You got to be careful if you don't know where you're going, because you might not get there.**_
+_**The opportunity for brotherhood presents itself every time you meet a human being.**_
 
-Yogi Berra
+Jane Wyman
