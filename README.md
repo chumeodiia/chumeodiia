@@ -1,3 +1,3 @@
-_**The opportunity for brotherhood presents itself every time you meet a human being.**_
+_**Winners never quit and quitters never win.**_
 
-Jane Wyman
+Vince Lombardi
