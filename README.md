@@ -1,3 +1,3 @@
-_**Winners never quit and quitters never win.**_
+_**Neatness begets order; but from order to taste there is the same difference as from taste to genius, or from love to friendship.**_
 
-Vince Lombardi
+Johann Kaspar Lavater
