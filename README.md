@@ -1,3 +1,3 @@
-_**Neatness begets order; but from order to taste there is the same difference as from taste to genius, or from love to friendship.**_
+_**Positive thinking will let you do everything better than negative thinking will.**_
 
-Johann Kaspar Lavater
+Zig Ziglar
