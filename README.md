@@ -1,3 +1,3 @@
-_**Technology is destructive only in the hands of people who do not realize that they are one and the same process as the universe.**_
+_**Conflict is the gadfly of thought. It stirs us to observation and memory. It instigates to invention. It shocks us out of sheeplike passivity, and sets us at noting and contriving.**_
 
-Alan Watts
+John Dewey
