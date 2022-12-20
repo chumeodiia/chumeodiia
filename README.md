@@ -1,3 +1,3 @@
-_**Flow with whatever is happening and let your mind be free. Stay centered by accepting whatever you are doing. This is the ultimate.**_
+_**If you smile when no one else is around, you really mean it.**_
 
-Zhuang Zhou
+Andy Rooney
