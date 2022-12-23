@@ -1,3 +1,3 @@
-_**Never accept ultimatums, conventional wisdom, or absolutes.**_
+_**Walking with a friend in the dark is better than walking alone in the light.**_
 
-Christopher Reeve
+Helen Keller
