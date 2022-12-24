@@ -1,3 +1,3 @@
-_**Walking with a friend in the dark is better than walking alone in the light.**_
+_**I want my friend to miss me as long as I miss him.**_
 
-Helen Keller
+Augustine of Hippo
