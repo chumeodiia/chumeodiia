@@ -1,3 +1,3 @@
-_**I want my friend to miss me as long as I miss him.**_
+_**Build a better mousetrap and the world will beat a path to your door.**_
 
-Augustine of Hippo
+Ralph Waldo Emerson
