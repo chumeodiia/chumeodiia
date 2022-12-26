@@ -1,3 +1,3 @@
-_**Build a better mousetrap and the world will beat a path to your door.**_
+_**There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness.**_
 
-Ralph Waldo Emerson
+Dalai Lama
