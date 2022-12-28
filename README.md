@@ -1,3 +1,3 @@
-_**Men of perverse opinion do not know the excellence of what is in their hands, till someone dash it from them.**_
+_**Mind is everything: muscle, pieces of rubber. All that I am, I am because of my mind.**_
 
-Sophocles
+Paavo Nurmi
