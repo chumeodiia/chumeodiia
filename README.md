@@ -1,3 +1,3 @@
-_**The greatest part of our happiness depends on our dispositions, not our circumstances.**_
+_**The world makes way for the man who knows where he is going.**_
 
-Martha Washington
+Ralph Waldo Emerson
