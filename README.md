@@ -1,3 +1,3 @@
-_**The sincere friends of this world are as ship lights in the stormiest of nights.**_
+_**You cannot be lonely if you like the person you're alone with.**_
 
-Giotto
+Wayne Dyer
