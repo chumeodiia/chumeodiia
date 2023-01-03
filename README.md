@@ -1,3 +1,3 @@
-_**You cannot be lonely if you like the person you're alone with.**_
+_**A business that makes nothing but money is a poor business.**_
 
-Wayne Dyer
+Henry Ford
