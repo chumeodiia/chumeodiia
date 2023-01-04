@@ -1,3 +1,3 @@
-_**A business that makes nothing but money is a poor business.**_
+_**Anything you really want, you can attain, if you really go after it.**_
 
-Henry Ford
+Wayne Dyer
