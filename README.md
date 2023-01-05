@@ -1,3 +1,3 @@
-_**Anything you really want, you can attain, if you really go after it.**_
+_**A lot of times people look at the negative side of what they feel they can't do. I always look on the positive side of what I can do.**_
 
-Wayne Dyer
+Chuck Norris
