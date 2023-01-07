@@ -1,3 +1,3 @@
-_**Listen to what you know instead of what you fear.**_
+_**You got to be careful if you don't know where you're going, because you might not get there.**_
 
-Richard Bach
+Yogi Berra
