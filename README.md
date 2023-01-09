@@ -1,3 +1,3 @@
-_**Silence is the true friend that never betrays.**_
+_**Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**_
 
-Confucius
+Mother Teresa
