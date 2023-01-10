@@ -1,3 +1,3 @@
-_**Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**_
+_**Good, better, best. Never let it rest. ‘Til your good is better and your better is best.**_
 
-Mother Teresa
+Jerome
