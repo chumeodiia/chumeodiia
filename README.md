@@ -1,3 +1,3 @@
-_**Good, better, best. Never let it rest. ‘Til your good is better and your better is best.**_
+_**Never deny a diagnosis but do deny the negative verdict that may go with it.**_
 
-Jerome
+Norman Cousins
