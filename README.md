@@ -1,3 +1,3 @@
-_**Never deny a diagnosis but do deny the negative verdict that may go with it.**_
+_**If you aren't going all the way, why go at all?**_
 
-Norman Cousins
+Joe Namath
