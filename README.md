@@ -1,3 +1,3 @@
-_**A really great talent finds its happiness in execution.**_
+_**The world is a book, and those who do not travel read only a page.**_
 
-Johann Wolfgang von Goethe
+Augustine of Hippo
