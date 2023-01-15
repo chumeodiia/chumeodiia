@@ -1,3 +1,3 @@
-_**The world is a book, and those who do not travel read only a page.**_
+_**Even an animal, if you show genuine affection, gradually trust develops... If you always showing bad face and beating, how can you develop friendship?**_
 
-Augustine of Hippo
+Dalai Lama
