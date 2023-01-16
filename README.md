@@ -1,3 +1,3 @@
-_**Even an animal, if you show genuine affection, gradually trust develops... If you always showing bad face and beating, how can you develop friendship?**_
+_**If there is no struggle, there is no progress.**_
 
-Dalai Lama
+Frederick Douglass
