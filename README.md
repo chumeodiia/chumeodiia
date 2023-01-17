@@ -1,3 +1,3 @@
-_**If there is no struggle, there is no progress.**_
+_**My friends are my estate.**_
 
-Frederick Douglass
+Emily Dickinson
