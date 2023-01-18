@@ -1,3 +1,3 @@
-_**My friends are my estate.**_
+_**Your vision will become clear only when you look into your heart. Who looks outside, dreams. Who looks inside, awakens.**_
 
-Emily Dickinson
+Carl Jung
