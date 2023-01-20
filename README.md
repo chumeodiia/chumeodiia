@@ -1,3 +1,3 @@
-_**Silence is the true friend that never betrays.**_
+_**Each friend represents a world in us, a world not born until they arrive, and it is only by this meeting that a new world is born.**_
 
-Confucius
+Anaïs Nin
