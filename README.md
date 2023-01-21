@@ -1,3 +1,3 @@
-_**Each friend represents a world in us, a world not born until they arrive, and it is only by this meeting that a new world is born.**_
+_**Life is the flower for which love is the honey.**_
 
-Anaïs Nin
+Victor Hugo
