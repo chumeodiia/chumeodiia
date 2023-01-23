@@ -1,3 +1,3 @@
-_**One friend in a lifetime is much; two are many; three are hardly possible. Friendship needs a certain parallelism of life, a community of thought, a rivalry of aim.**_
+_**All that is necessary is to accept the impossible, do without the indispensable, and bear the intolerable.**_
 
-Brooks Adams
+Kathleen Norris
