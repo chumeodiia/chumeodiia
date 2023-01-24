@@ -1,3 +1,3 @@
-_**All that is necessary is to accept the impossible, do without the indispensable, and bear the intolerable.**_
+_**Thought is the blossom; language the bud; action the fruit behind it.**_
 
-Kathleen Norris
+Ralph Waldo Emerson
