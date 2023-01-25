@@ -1,3 +1,3 @@
-_**Thought is the blossom; language the bud; action the fruit behind it.**_
+_**All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason.**_
 
-Ralph Waldo Emerson
+Immanuel Kant
