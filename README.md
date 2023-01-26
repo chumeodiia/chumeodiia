@@ -1,3 +1,3 @@
-_**All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason.**_
+_**Never deny a diagnosis but do deny the negative verdict that may go with it.**_
 
-Immanuel Kant
+Norman Cousins
