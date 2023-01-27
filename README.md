@@ -1,3 +1,3 @@
-_**Never deny a diagnosis but do deny the negative verdict that may go with it.**_
+_**Lose an hour in the morning, and you will spend all day looking for it.**_
 
-Norman Cousins
+Richard Whately
