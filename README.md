@@ -1,3 +1,3 @@
-_**Lose an hour in the morning, and you will spend all day looking for it.**_
+_**I am always ready to learn although I do not always like being taught.**_
 
-Richard Whately
+Winston Churchill
