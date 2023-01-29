@@ -1,3 +1,3 @@
-_**I am always ready to learn although I do not always like being taught.**_
+_**To lead people walk behind them.**_
 
-Winston Churchill
+Laozi
