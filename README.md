@@ -1,3 +1,3 @@
-_**The inherent vice of capitalism is the unequal sharing of blessings; the inherent virtue of socialism is the equal sharing of miseries.**_
+_**Wisdom comes alone through suffering.**_
 
-Winston Churchill
+Aeschylus
