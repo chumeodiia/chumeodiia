@@ -1,3 +1,3 @@
-_**To be fully alive, fully human, and completely awake is to be continually thrown out of the nest.**_
+_**You will not be punished for your anger; you will be punished by your anger.**_
 
-Pema Chödrön
+Buddha
