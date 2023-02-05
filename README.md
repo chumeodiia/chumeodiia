@@ -1,3 +1,3 @@
-_**You will not be punished for your anger; you will be punished by your anger.**_
+_**Appearances are often deceiving.**_
 
-Buddha
+Aesop
