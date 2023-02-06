@@ -1,3 +1,3 @@
-_**Appearances are often deceiving.**_
+_**Rare as is true love, true friendship is rarer.**_
 
-Aesop
+Jean de La Fontaine
