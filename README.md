@@ -1,3 +1,3 @@
-_**Rare as is true love, true friendship is rarer.**_
+_**I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do.**_
 
-Jean de La Fontaine
+Leonardo da Vinci
