@@ -1,3 +1,3 @@
-_**I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do.**_
+_**To be great is to be misunderstood.**_
 
-Leonardo da Vinci
+Ralph Waldo Emerson
