@@ -1,3 +1,3 @@
-_**To be great is to be misunderstood.**_
+_**Take rest; a field that has rested gives a bountiful crop.**_
 
-Ralph Waldo Emerson
+Ovid
