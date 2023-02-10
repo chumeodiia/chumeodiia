@@ -1,3 +1,3 @@
-_**Take rest; a field that has rested gives a bountiful crop.**_
+_**Nature is a mutable cloud which is always and never the same.**_
 
-Ovid
+Ralph Waldo Emerson
