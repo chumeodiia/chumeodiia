@@ -1,3 +1,3 @@
-_**Each friend represents a world in us, a world not born until they arrive, and it is only by this meeting that a new world is born.**_
+_**We must learn our limits. We are all something, but none of us are everything.**_
 
-Anaïs Nin
+Blaise Pascal
