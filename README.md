@@ -1,3 +1,3 @@
-_**We must learn our limits. We are all something, but none of us are everything.**_
+_**It is impossible to love and to be wise.**_
 
-Blaise Pascal
+Francis Bacon
