@@ -1,3 +1,3 @@
-_**It is impossible to love and to be wise.**_
+_**Things do not change; we change.**_
 
-Francis Bacon
+Henry David Thoreau
