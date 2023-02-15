@@ -1,3 +1,3 @@
-_**Things do not change; we change.**_
+_**One today is worth two tomorrows.**_
 
-Henry David Thoreau
+Benjamin Franklin
