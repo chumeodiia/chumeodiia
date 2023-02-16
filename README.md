@@ -1,3 +1,3 @@
-_**One today is worth two tomorrows.**_
+_**What we see depends mainly on what we look for.**_
 
-Benjamin Franklin
+John Lubbock
