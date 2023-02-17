@@ -1,3 +1,3 @@
-_**What we see depends mainly on what we look for.**_
+_**By failing to prepare, you are preparing to fail.**_
 
-John Lubbock
+Benjamin Franklin
