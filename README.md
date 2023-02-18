@@ -1,3 +1,3 @@
-_**By failing to prepare, you are preparing to fail.**_
+_**Change in all things is sweet.**_
 
-Benjamin Franklin
+Aristotle
