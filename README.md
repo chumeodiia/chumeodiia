@@ -1,3 +1,3 @@
-_**It is one of the blessings of old friends that you can afford to be stupid with them.**_
+_**Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.**_
 
-Ralph Waldo Emerson
+Sidney Hook
