@@ -1,3 +1,3 @@
-_**Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.**_
+_**I have not failed. I've just found 10,000 ways that won't work.**_
 
-Sidney Hook
+Thomas Edison
