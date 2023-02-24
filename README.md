@@ -1,3 +1,3 @@
-_**I have not failed. I've just found 10,000 ways that won't work.**_
+_**To want to be what one can be is purpose in life.**_
 
-Thomas Edison
+Cynthia Ozick
