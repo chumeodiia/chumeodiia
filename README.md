@@ -1,3 +1,3 @@
-_**To want to be what one can be is purpose in life.**_
+_**The weak can never forgive. Forgiveness is the attribute of the strong.**_
 
-Cynthia Ozick
+Mahatma Gandhi
