@@ -1,3 +1,3 @@
-_**The weak can never forgive. Forgiveness is the attribute of the strong.**_
+_**Reality does not conform to the ideal but confirms it.**_
 
-Mahatma Gandhi
+Gustave Flaubert
