@@ -1,3 +1,3 @@
-_**I never see what has been done; I only see what remains to be done.**_
+_**Good luck is another name for tenacity of purpose.**_
 
-Marie Curie
+Ralph Waldo Emerson
