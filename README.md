@@ -1,3 +1,3 @@
-_**Good luck is another name for tenacity of purpose.**_
+_**A leader or a man of action in a crisis almost always acts subconsciously and then thinks of the reasons for his action.**_
 
-Ralph Waldo Emerson
+Jawaharlal Nehru
