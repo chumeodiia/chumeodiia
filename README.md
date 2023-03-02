@@ -1,3 +1,3 @@
-_**A leader or a man of action in a crisis almost always acts subconsciously and then thinks of the reasons for his action.**_
+_**Meaning is not what you start with but what you end up with.**_
 
-Jawaharlal Nehru
+Peter Elbow
