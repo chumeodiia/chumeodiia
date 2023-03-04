@@ -1,3 +1,3 @@
-_**Don't turn away from possible futures before you're certain you don't have anything to learn from them.**_
+_**Don't settle for a relationship that won't let you be yourself.**_
 
-Richard Bach
+Oprah Winfrey
