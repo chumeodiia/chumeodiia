@@ -1,3 +1,3 @@
-_**The pessimist sees difficulty in every opportunity. The optimist sees the opportunity in every difficulty.**_
+_**If you talk to a man in a language he understands, that goes to his head. If you talk to him in his language, that goes to his heart.**_
 
-Winston Churchill
+Nelson Mandela
