@@ -1,3 +1,3 @@
-_**If you talk to a man in a language he understands, that goes to his head. If you talk to him in his language, that goes to his heart.**_
+_**True wisdom is less presuming than folly. The wise man doubteth often, and changeth his mind; the fool is obstinate, and doubteth not; he knoweth all things but his own ignorance.**_
 
-Nelson Mandela
+Akhenaten
