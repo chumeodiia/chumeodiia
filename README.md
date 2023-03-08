@@ -1,3 +1,3 @@
-_**True wisdom is less presuming than folly. The wise man doubteth often, and changeth his mind; the fool is obstinate, and doubteth not; he knoweth all things but his own ignorance.**_
+_**What matters is the value we've created in our lives, the people we've made happy and how much we've grown as people.**_
 
-Akhenaten
+Daisaku Ikeda
