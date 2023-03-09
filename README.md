@@ -1,3 +1,3 @@
-_**What matters is the value we've created in our lives, the people we've made happy and how much we've grown as people.**_
+_**It is fatal to enter any war without the will to win it.**_
 
-Daisaku Ikeda
+Douglas MacArthur
