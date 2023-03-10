@@ -1,3 +1,3 @@
-_**It is fatal to enter any war without the will to win it.**_
+_**I believe that we are fundamentally the same and have the same basic potential.**_
 
-Douglas MacArthur
+Dalai Lama
