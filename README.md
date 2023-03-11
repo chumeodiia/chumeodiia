@@ -1,3 +1,3 @@
-_**I believe that we are fundamentally the same and have the same basic potential.**_
+_**If only wed stop trying to be happy wed have a pretty good time.**_
 
-Dalai Lama
+Edith Wharton
