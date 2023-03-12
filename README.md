@@ -1,3 +1,3 @@
-_**If only wed stop trying to be happy wed have a pretty good time.**_
+_**Make it your habit not to be critical about small things.**_
 
-Edith Wharton
+Edward Everett Hale
