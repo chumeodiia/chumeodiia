@@ -1,3 +1,3 @@
-_**Make it your habit not to be critical about small things.**_
+_**Men in general judge more from appearances than from reality. All men have eyes, but few have the gift of penetration.**_
 
-Edward Everett Hale
+Niccolò Machiavelli
