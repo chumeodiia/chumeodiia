@@ -1,3 +1,3 @@
-_**Men in general judge more from appearances than from reality. All men have eyes, but few have the gift of penetration.**_
+_**The supreme art of war is to subdue the enemy without fighting.**_
 
-Niccolò Machiavelli
+Sun Tzu
