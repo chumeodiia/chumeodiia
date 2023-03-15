@@ -1,3 +1,3 @@
-_**The supreme art of war is to subdue the enemy without fighting.**_
+_**I believe that we are solely responsible for our choices, and we have to accept the consequences of every deed, word, and thought throughout our lifetime.**_
 
-Sun Tzu
+Elisabeth Kübler-Ross
