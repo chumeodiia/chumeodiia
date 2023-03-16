@@ -1,3 +1,3 @@
-_**I believe that we are solely responsible for our choices, and we have to accept the consequences of every deed, word, and thought throughout our lifetime.**_
+_**You can always tell a real friend: when you've made a fool of yourself he doesn't feel you've done a permanent job.**_
 
-Elisabeth Kübler-Ross
+Laurence J. Peter
