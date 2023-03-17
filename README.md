@@ -1,3 +1,3 @@
-_**You can always tell a real friend: when you've made a fool of yourself he doesn't feel you've done a permanent job.**_
+_**Let the beauty of what you love be what you do.**_
 
-Laurence J. Peter
+Rumi
