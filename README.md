@@ -1,3 +1,3 @@
-_**Let the beauty of what you love be what you do.**_
+_**Technology made large populations possible; large populations now make technology indispensable.**_
 
-Rumi
+Joseph Wood Krutch
