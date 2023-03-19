@@ -1,3 +1,3 @@
-_**Technology made large populations possible; large populations now make technology indispensable.**_
+_**An invasion of armies can be resisted, but not an idea whose time has come.**_
 
-Joseph Wood Krutch
+Victor Hugo
