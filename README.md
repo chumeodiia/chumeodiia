@@ -1,3 +1,3 @@
-_**An invasion of armies can be resisted, but not an idea whose time has come.**_
+_**What sweetness is left in life, if you take away friendship? Robbing life of friendship is like robbing the world of the sun. A true friend is more to be esteemed than kinsfolk.**_
 
-Victor Hugo
+Cicero
