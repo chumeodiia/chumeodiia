@@ -1,3 +1,3 @@
-_**Patience is the companion of wisdom.**_
+_**If you do what you've always done, you'll get what you've always gotten.**_
 
-Augustine of Hippo
+Tony Robbins
