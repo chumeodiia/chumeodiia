@@ -1,3 +1,3 @@
-_**If you do what you've always done, you'll get what you've always gotten.**_
+_**The entrepreneur always searches for change, responds to it, and exploits it as an opportunity.**_
 
-Tony Robbins
+Peter Drucker
