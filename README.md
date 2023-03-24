@@ -1,3 +1,3 @@
-_**The entrepreneur always searches for change, responds to it, and exploits it as an opportunity.**_
+_**Inspiration exists, but it has to find us working.**_
 
-Peter Drucker
+Pablo Picasso
