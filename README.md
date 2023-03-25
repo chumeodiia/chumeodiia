@@ -1,3 +1,3 @@
-_**Inspiration exists, but it has to find us working.**_
+_**Yesterday's home runs don't win today's games.**_
 
-Pablo Picasso
+Babe Ruth
