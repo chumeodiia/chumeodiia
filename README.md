@@ -1,3 +1,3 @@
-_**Yesterday's home runs don't win today's games.**_
+_**The future belongs to those who believe in the beauty of their dreams.**_
 
-Babe Ruth
+Eleanor Roosevelt
