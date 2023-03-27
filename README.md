@@ -1,3 +1,3 @@
-_**The future belongs to those who believe in the beauty of their dreams.**_
+_**Successful people ask better questions, and as a result, they get better answers.**_
 
-Eleanor Roosevelt
+Tony Robbins
