@@ -1,3 +1,3 @@
-_**Successful people ask better questions, and as a result, they get better answers.**_
+_**Love is composed of a single soul inhabiting two bodies.**_
 
-Tony Robbins
+Aristotle
