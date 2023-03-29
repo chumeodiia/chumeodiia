@@ -1,3 +1,3 @@
-_**Love is composed of a single soul inhabiting two bodies.**_
+_**There are three faithful friends - an old wife, an old dog, and ready money.**_
 
-Aristotle
+Benjamin Franklin
