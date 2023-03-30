@@ -1,3 +1,3 @@
-_**There are three faithful friends - an old wife, an old dog, and ready money.**_
+_**I'd rather attempt to do something great and fail than to attempt to do nothing and succeed.**_
 
-Benjamin Franklin
+Robert Schuller
