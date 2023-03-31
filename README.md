@@ -1,3 +1,3 @@
-_**I'd rather attempt to do something great and fail than to attempt to do nothing and succeed.**_
+_**Work for something because it is good, not just because it stands a chance to succeed.**_
 
-Robert Schuller
+Václav Havel
