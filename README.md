@@ -1,3 +1,3 @@
-_**We are wiser than we know.**_
+_**True friendship ought never to conceal what it thinks.**_
 
-Ralph Waldo Emerson
+Jerome
