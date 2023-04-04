@@ -1,3 +1,3 @@
-_**True friendship ought never to conceal what it thinks.**_
+_**Learning without reflection is a waste, reflection without learning is dangerous.**_
 
-Jerome
+Confucius
