@@ -1,3 +1,3 @@
-_**Learning without reflection is a waste, reflection without learning is dangerous.**_
+_**Knowing is not enough; we must apply!**_
 
-Confucius
+Johann Wolfgang von Goethe
