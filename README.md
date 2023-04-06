@@ -1,3 +1,3 @@
-_**Knowing is not enough; we must apply!**_
+_**Nature and books belong to the eyes that see them.**_
 
-Johann Wolfgang von Goethe
+Ralph Waldo Emerson
