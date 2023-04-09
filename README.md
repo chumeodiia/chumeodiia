@@ -1,3 +1,3 @@
-_**He that respects himself is safe from others; he wears a coat of mail that none can pierce.**_
+_**If you don't like something, change it. If you can't change it, change your attitude.**_
 
-Henry Wadsworth Longfellow
+Maya Angelou
