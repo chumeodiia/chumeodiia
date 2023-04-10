@@ -1,3 +1,3 @@
-_**If you don't like something, change it. If you can't change it, change your attitude.**_
+_**I have done my best: that is about all the philosophy of living one needs.**_
 
-Maya Angelou
+Lin Yutang
