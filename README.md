@@ -1,3 +1,3 @@
-_**Our kindness may be the most persuasive argument for that which we believe.**_
+_**True happiness arises, in the first place, from the enjoyment of oneself, and in the next, from the friendship and conversation of a few select companions.**_
 
-Gordon Hinckley
+Joseph Addison
