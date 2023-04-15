@@ -1,3 +1,3 @@
-_**Time is the wisest counsellor of all.**_
+_**We don't know a millionth of one percent about anything.**_
 
-Pericles
+Thomas Edison
