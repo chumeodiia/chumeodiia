@@ -1,3 +1,3 @@
-_**Good timber does not grow with ease; the stronger the wind, the stronger the trees.**_
+_**The secret of business is to know something that nobody else knows.**_
 
-J. Willard Marriott
+Aristotle Onassis
