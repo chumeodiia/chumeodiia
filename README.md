@@ -1,3 +1,3 @@
-_**The secret of business is to know something that nobody else knows.**_
+_**Always be smarter than the people who hire you.**_
 
-Aristotle Onassis
+Lena Horne
