@@ -1,3 +1,3 @@
-_**Always be smarter than the people who hire you.**_
+_**All know the way; few actually walk it.**_
 
-Lena Horne
+Bodhidharma
