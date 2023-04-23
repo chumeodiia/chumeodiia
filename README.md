@@ -1,3 +1,3 @@
-_**To command is to serve, nothing more and nothing less.**_
+_**I find hope in the darkest of days, and focus in the brightest. I do not judge the universe.**_
 
-André Malraux
+Dalai Lama
