@@ -1,3 +1,3 @@
-_**I find hope in the darkest of days, and focus in the brightest. I do not judge the universe.**_
+_**Trust is the lubrication that makes it possible for organizations to work.**_
 
-Dalai Lama
+Warren Bennis
