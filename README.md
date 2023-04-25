@@ -1,3 +1,3 @@
-_**Trust is the lubrication that makes it possible for organizations to work.**_
+_**His lack of education is more than compensated for by his keenly developed moral bankruptcy.**_
 
-Warren Bennis
+Woody Allen
