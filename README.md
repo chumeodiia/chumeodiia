@@ -1,3 +1,3 @@
-_**His lack of education is more than compensated for by his keenly developed moral bankruptcy.**_
+_**Spread love everywhere you go. Let no one ever come to you without leaving happier.**_
 
-Woody Allen
+Mother Teresa
