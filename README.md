@@ -1,3 +1,3 @@
-_**Spread love everywhere you go. Let no one ever come to you without leaving happier.**_
+_**Our strength grows out of our weaknesses.**_
 
-Mother Teresa
+Ralph Waldo Emerson
