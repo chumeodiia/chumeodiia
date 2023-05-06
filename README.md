@@ -1,3 +1,3 @@
-_**We need never be ashamed of our tears.**_
+_**The key to transforming our hearts and minds is to have an understanding of how our thoughts and emotions work.**_
 
-Charles Dickens
+Dalai Lama
