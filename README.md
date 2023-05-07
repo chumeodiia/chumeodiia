@@ -1,3 +1,3 @@
-_**The key to transforming our hearts and minds is to have an understanding of how our thoughts and emotions work.**_
+_**The differences between friends cannot but reinforce their friendship.**_
 
-Dalai Lama
+Mao Zedong
