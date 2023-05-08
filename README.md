@@ -1,3 +1,3 @@
-_**The differences between friends cannot but reinforce their friendship.**_
+_**We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely.**_
 
-Mao Zedong
+Frank Abagnale
