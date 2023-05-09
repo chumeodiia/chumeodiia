@@ -1,3 +1,3 @@
-_**We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely.**_
+_**I owe my solitude to other people.**_
 
-Frank Abagnale
+Alan Watts
