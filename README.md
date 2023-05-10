@@ -1,3 +1,3 @@
-_**I owe my solitude to other people.**_
+_**Keep silence for the most part, and speak only when you must, and then briefly.**_
 
-Alan Watts
+Epictetus
