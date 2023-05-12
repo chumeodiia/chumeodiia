@@ -1,3 +1,3 @@
-_**When you discover your mission, you will feel its demand. It will fill you with enthusiasm and a burning desire to get to work on it.**_
+_**When I do good I feel good, when I do bad I feel bad, and that's my religion.**_
 
-W. Clement Stone
+Abraham Lincoln
