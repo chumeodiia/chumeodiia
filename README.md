@@ -1,3 +1,3 @@
-_**When I do good I feel good, when I do bad I feel bad, and that's my religion.**_
+_**And when the world is created, it is created in such a way that those eternal objects of God's loving wisdom become actualities - interacting with one another, relating to God in the finite realm.**_
 
-Abraham Lincoln
+Rowan Williams
