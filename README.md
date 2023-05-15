@@ -1,3 +1,3 @@
-_**To improve is to change; to be perfect is to change often.**_
+_**The difference between what we do and what we are capable of doing would suffice to solve most of the world's problems.**_
 
-Winston Churchill
+Mahatma Gandhi
