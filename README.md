@@ -1,3 +1,3 @@
-_**The difference between what we do and what we are capable of doing would suffice to solve most of the world's problems.**_
+_**Positive thinking will let you do everything better than negative thinking will.**_
 
-Mahatma Gandhi
+Zig Ziglar
