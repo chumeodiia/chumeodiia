@@ -1,3 +1,3 @@
-_**Positive thinking will let you do everything better than negative thinking will.**_
+_**You don't play against opponents, you play against the game of basketball.**_
 
-Zig Ziglar
+Bob Knight
