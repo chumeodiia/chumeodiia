@@ -1,3 +1,3 @@
-_**You don't play against opponents, you play against the game of basketball.**_
+_**We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started.**_
 
-Bob Knight
+Henry Ward Beecher
