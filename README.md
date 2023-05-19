@@ -1,3 +1,3 @@
-_**We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started.**_
+_**A true friend freely, advises justly, assists readily, adventures boldly, takes all patiently, defends courageously, and continues a friend unchangeably.**_
 
-Henry Ward Beecher
+William C. Menninger
