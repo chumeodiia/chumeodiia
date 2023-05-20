@@ -1,3 +1,3 @@
-_**A true friend freely, advises justly, assists readily, adventures boldly, takes all patiently, defends courageously, and continues a friend unchangeably.**_
+_**The time to repair the roof is when the sun is shining.**_
 
-William C. Menninger
+John F. Kennedy
