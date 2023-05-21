@@ -1,3 +1,3 @@
-_**The time to repair the roof is when the sun is shining.**_
+_**We cannot be more sensitive to pleasure without being more sensitive to pain.**_
 
-John F. Kennedy
+Alan Watts
