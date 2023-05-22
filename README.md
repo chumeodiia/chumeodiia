@@ -1,3 +1,3 @@
-_**We cannot be more sensitive to pleasure without being more sensitive to pain.**_
+_**Lord, make me an instrument of thy peace. Where there is hatred, let me sow love.**_
 
-Alan Watts
+Francis of Assisi
