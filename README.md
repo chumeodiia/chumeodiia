@@ -1,3 +1,3 @@
-_**Lord, make me an instrument of thy peace. Where there is hatred, let me sow love.**_
+_**When I let go of what I am, I become what I might be.**_
 
-Francis of Assisi
+Laozi
