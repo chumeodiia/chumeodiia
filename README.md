@@ -1,3 +1,3 @@
-_**When I let go of what I am, I become what I might be.**_
+_**Happiness is the reward we get for living to the highest right we know.**_
 
-Laozi
+Richard Bach
