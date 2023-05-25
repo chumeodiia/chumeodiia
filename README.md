@@ -1,3 +1,3 @@
-_**Happiness is the reward we get for living to the highest right we know.**_
+_**To be able to give away riches is mandatory if you wish to possess them. This is the only way that you will be truly rich.**_
 
-Richard Bach
+Muhammad Ali
