@@ -1,3 +1,3 @@
-_**Imagination is not a talent of some men but is the health of every man.**_
+_**Be content with your lot; one cannot be first in everything.**_
 
-Ralph Waldo Emerson
+Aesop
