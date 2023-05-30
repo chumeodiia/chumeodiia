@@ -1,3 +1,3 @@
-_**If you accept the expectations of others, especially negative ones, then you never will change the outcome.**_
+_**Always keep an open mind and a compassionate heart.**_
 
-Michael Jordan
+Phil Jackson
