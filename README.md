@@ -1,3 +1,3 @@
-_**Learn from yesterday, live for today, hope for tomorrow.**_
+_**If you want your life to be more rewarding, you have to change the way you think.**_
 
-Albert Einstein
+Oprah Winfrey
