@@ -1,3 +1,3 @@
-_**He who knows himself is enlightened.**_
+_**The more you care, the stronger you can be.**_
 
-Laozi
+Jim Rohn
