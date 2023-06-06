@@ -1,3 +1,3 @@
-_**Should you find a wise critic to point out your faults, follow him as you would a guide to hidden treasure.**_
+_**Error is discipline through which we advance.**_
 
-The Buddha
+William Ellery Channing
