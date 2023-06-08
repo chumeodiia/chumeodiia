@@ -1,3 +1,3 @@
-_**It is not the possession of truth, but the success which attends the seeking after it, that enriches the seeker and brings happiness to him.**_
+_**Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots.**_
 
-Max Planck
+George Santayana
