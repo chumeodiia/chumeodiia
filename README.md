@@ -1,3 +1,3 @@
-_**Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots.**_
+_**Nothing in life is to be feared, it is only to be understood. Now is the time to understand more, so that we may fear less.**_
 
-George Santayana
+Marie Curie
