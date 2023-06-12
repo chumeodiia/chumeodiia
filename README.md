@@ -1,3 +1,3 @@
-_**I am a firm believer in the people. If given the truth, they can be depended upon to meet any national crisis. The great point is to bring them the real facts.**_
+_**Coming together is a beginning; keeping together is progress; working together is success.**_
 
-Abraham Lincoln
+Edward Everett Hale
