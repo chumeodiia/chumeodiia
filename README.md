@@ -1,3 +1,3 @@
-_**Coming together is a beginning; keeping together is progress; working together is success.**_
+_**Knowing your own darkness is the best method for dealing with the darkness of other people.**_
 
-Edward Everett Hale
+Carl Jung
