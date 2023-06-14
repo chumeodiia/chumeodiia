@@ -1,3 +1,3 @@
-_**Knowing your own darkness is the best method for dealing with the darkness of other people.**_
+_**Friendship is one mind in two bodies.**_
 
-Carl Jung
+Mencius
