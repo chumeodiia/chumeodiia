@@ -1,3 +1,3 @@
-_**Through perseverance many people win success out of what seemed destined to be certain failure.**_
+_**I believe that we are solely responsible for our choices, and we have to accept the consequences of every deed, word, and thought throughout our lifetime.**_
 
-Benjamin Disraeli
+Elisabeth Kübler-Ross
