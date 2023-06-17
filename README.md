@@ -1,3 +1,3 @@
-_**I believe that we are solely responsible for our choices, and we have to accept the consequences of every deed, word, and thought throughout our lifetime.**_
+_**Irrigators channel waters; fletchers straighten arrows; carpenters bend wood; the wise master themselves.**_
 
-Elisabeth Kübler-Ross
+The Buddha
