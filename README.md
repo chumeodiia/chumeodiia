@@ -1,3 +1,3 @@
-_**Irrigators channel waters; fletchers straighten arrows; carpenters bend wood; the wise master themselves.**_
+_**Life is a succession of moments. To live each one is to succeed.**_
 
-The Buddha
+Corita Kent
