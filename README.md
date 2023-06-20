@@ -1,3 +1,3 @@
-_**A true friend freely, advises justly, assists readily, adventures boldly, takes all patiently, defends courageously, and continues a friend unchangeably.**_
+_**To listen well is as powerful a means of communication and influence as to talk well.**_
 
-William C. Menninger
+John Marshall
