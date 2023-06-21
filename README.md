@@ -1,3 +1,3 @@
-_**To listen well is as powerful a means of communication and influence as to talk well.**_
+_**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**_
 
-John Marshall
+Samuel Beckett
