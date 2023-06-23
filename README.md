@@ -1,3 +1,3 @@
-_**The moment one gives close attention to anything, even a blade of grass, it becomes a mysterious, awesome, indescribably magnificent world in itself.**_
+_**Do not be too timid and squeamish about your reactions. All life is an experiment. The more experiments you make the better.**_
 
-Henry Miller
+Ralph Waldo Emerson
