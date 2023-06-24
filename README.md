@@ -1,3 +1,3 @@
-_**Do not be too timid and squeamish about your reactions. All life is an experiment. The more experiments you make the better.**_
+_**Russia is a riddle wrapped in a mystery inside an enigma.**_
 
-Ralph Waldo Emerson
+Winston Churchill
