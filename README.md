@@ -1,3 +1,3 @@
-_**Russia is a riddle wrapped in a mystery inside an enigma.**_
+_**It is the mark of an educated mind to be able to entertain a thought without accepting it.**_
 
-Winston Churchill
+Aristotle
