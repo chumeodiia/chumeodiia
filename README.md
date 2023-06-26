@@ -1,3 +1,3 @@
-_**It is the mark of an educated mind to be able to entertain a thought without accepting it.**_
+_**Be content with your lot; one cannot be first in everything.**_
 
-Aristotle
+Aesop
