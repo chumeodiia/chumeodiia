@@ -1,3 +1,3 @@
-_**Be content with your lot; one cannot be first in everything.**_
+_**Everyone has been made for some particular work, and the desire for that work has been put in every heart.**_
 
-Aesop
+Rumi
