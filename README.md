@@ -1,3 +1,3 @@
-_**Everyone has been made for some particular work, and the desire for that work has been put in every heart.**_
+_**Begin, be bold, and venture to be wise.**_
 
-Rumi
+Horace
