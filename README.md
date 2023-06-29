@@ -1,3 +1,3 @@
-_**Begin, be bold, and venture to be wise.**_
+_**Never reach out your hand unless you're willing to extend an arm.**_
 
-Horace
+Pope Paul VI
