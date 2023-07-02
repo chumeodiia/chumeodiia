@@ -1,3 +1,3 @@
-_**There surely is in human nature an inherent propensity to extract all the good out of all the evil.**_
+_**Once we accept our limits, we go beyond them.**_
 
-Benjamin Haydon
+Albert Einstein
