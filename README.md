@@ -1,3 +1,3 @@
-_**Once we accept our limits, we go beyond them.**_
+_**Be the chief but never the lord.**_
 
-Albert Einstein
+Laozi
