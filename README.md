@@ -1,3 +1,3 @@
-_**Be the chief but never the lord.**_
+_**Fear not for the future, weep not for the past.**_
 
-Laozi
+Percy Bysshe Shelley
