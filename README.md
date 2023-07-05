@@ -1,3 +1,3 @@
-_**Fear not for the future, weep not for the past.**_
+_**To follow, without halt, one aim: There is the secret of success.**_
 
-Percy Bysshe Shelley
+Anna Pavlova
