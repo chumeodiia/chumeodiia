@@ -1,3 +1,3 @@
-_**To follow, without halt, one aim: There is the secret of success.**_
+_**Do you want to know who you are? Don't ask. Act! Action will delineate and define you.**_
 
-Anna Pavlova
+Thomas Jefferson
