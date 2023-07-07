@@ -1,3 +1,3 @@
-_**Do you want to know who you are? Don't ask. Act! Action will delineate and define you.**_
+_**The possibilities are numerous once we decide to act and not react.**_
 
-Thomas Jefferson
+George Bernard Shaw
