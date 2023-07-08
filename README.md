@@ -1,3 +1,3 @@
-_**The possibilities are numerous once we decide to act and not react.**_
+_**Sooner or later, those who win are those who think they can.**_
 
-George Bernard Shaw
+Richard Bach
