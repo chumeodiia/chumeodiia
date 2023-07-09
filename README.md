@@ -1,3 +1,3 @@
-_**Sooner or later, those who win are those who think they can.**_
+_**Human beings, who are almost unique in having the ability to learn from the experience of others, are also remarkable for their apparent disinclination to do so.**_
 
-Richard Bach
+Douglas Adams
