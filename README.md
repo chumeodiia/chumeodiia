@@ -1,3 +1,3 @@
-_**Do more than dream: work.**_
+_**With every experience, you alone are painting your own canvas, thought by thought, choice by choice.**_
 
-William Arthur Ward
+Oprah Winfrey
