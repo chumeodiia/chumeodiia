@@ -1,3 +1,3 @@
-_**With every experience, you alone are painting your own canvas, thought by thought, choice by choice.**_
+_**It always seems impossible until it's done.**_
 
-Oprah Winfrey
+Nelson Mandela
