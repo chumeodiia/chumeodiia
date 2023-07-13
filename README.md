@@ -1,3 +1,3 @@
-_**It always seems impossible until it's done.**_
+_**Genuine sincerity opens people's hearts, while manipulation causes them to close.**_
 
-Nelson Mandela
+Daisaku Ikeda
