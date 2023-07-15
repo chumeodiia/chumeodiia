@@ -1,3 +1,3 @@
-_**Reviewing what you have learned and learning anew, you are fit to be a teacher.**_
+_**Our kindness may be the most persuasive argument for that which we believe.**_
 
-Confucius
+Gordon Hinckley
