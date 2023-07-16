@@ -1,3 +1,3 @@
-_**Our kindness may be the most persuasive argument for that which we believe.**_
+_**Begin, be bold, and venture to be wise.**_
 
-Gordon Hinckley
+Horace
