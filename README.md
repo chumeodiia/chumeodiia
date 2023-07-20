@@ -1,3 +1,3 @@
-_**I, too, do not envision a doctrine of self the clinging to which there would not arise sorrow, lamentation, pain, grief, and despair.**_
+_**What is not started today is never finished tomorrow.**_
 
-The Buddha
+Johann Wolfgang von Goethe
