@@ -1,3 +1,3 @@
-_**What is not started today is never finished tomorrow.**_
+_**It is not so important to know everything as to appreciate what we learn.**_
 
-Johann Wolfgang von Goethe
+Hannah More
