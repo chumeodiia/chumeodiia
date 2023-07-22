@@ -1,3 +1,3 @@
-_**It is not so important to know everything as to appreciate what we learn.**_
+_**Failure will never overtake me if my determination to succeed is strong enough.**_
 
-Hannah More
+Og Mandino
