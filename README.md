@@ -1,3 +1,3 @@
-_**Failure will never overtake me if my determination to succeed is strong enough.**_
+_**Most of the shadows of life are caused by standing in our own sunshine.**_
 
-Og Mandino
+Ralph Waldo Emerson
