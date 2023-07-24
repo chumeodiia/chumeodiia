@@ -1,3 +1,3 @@
-_**Most of the shadows of life are caused by standing in our own sunshine.**_
+_**Good advice is always certain to be ignored, but that's no reason not to give it.**_
 
-Ralph Waldo Emerson
+Agatha Christie
