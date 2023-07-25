@@ -1,3 +1,3 @@
-_**Good advice is always certain to be ignored, but that's no reason not to give it.**_
+_**A poem begins in delight and ends in wisdom.**_
 
-Agatha Christie
+Robert Frost
