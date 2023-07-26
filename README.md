@@ -1,3 +1,3 @@
-_**A poem begins in delight and ends in wisdom.**_
+_**A goal is a dream with a deadline.**_
 
-Robert Frost
+Napoleon Hill
