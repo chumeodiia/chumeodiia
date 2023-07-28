@@ -1,3 +1,3 @@
-_**If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception; it is a prevailing attitude.**_
+_**Impossibilities are merely things which we have not yet learned.**_
 
-Colin Powell
+Charles W. Chesnutt
