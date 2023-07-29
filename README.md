@@ -1,3 +1,3 @@
-_**Impossibilities are merely things which we have not yet learned.**_
+_**There are no limitations to the mind except those we acknowledge.**_
 
-Charles W. Chesnutt
+Napoleon Hill
