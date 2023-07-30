@@ -1,3 +1,3 @@
-_**There are no limitations to the mind except those we acknowledge.**_
+_**The greatest way to live with honor in this world is to be what we pretend to be.**_
 
-Napoleon Hill
+Socrates
