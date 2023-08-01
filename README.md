@@ -1,3 +1,3 @@
-_**Decision is a risk rooted in the courage of being free.**_
+_**Autumn is a second spring when every leaf is a flower.**_
 
-Paul Tillich
+Albert Camus
