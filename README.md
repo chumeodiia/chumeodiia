@@ -1,3 +1,3 @@
-_**Autumn is a second spring when every leaf is a flower.**_
+_**Failure will never overtake me if my determination to succeed is strong enough.**_
 
-Albert Camus
+Og Mandino
