@@ -1,3 +1,3 @@
-_**Failure will never overtake me if my determination to succeed is strong enough.**_
+_**Never do things others can do and will do, if there are things others cannot do or will not do.**_
 
-Og Mandino
+Amelia Earhart
