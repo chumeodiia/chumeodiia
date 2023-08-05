@@ -1,3 +1,3 @@
-_**Who sows virtue reaps honor.**_
+_**Be kind whenever possible. It is always possible.**_
 
-Leonardo da Vinci
+Dalai Lama
