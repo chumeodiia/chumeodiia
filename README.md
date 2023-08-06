@@ -1,3 +1,3 @@
-_**Be kind whenever possible. It is always possible.**_
+_**Genius is one percent inspiration and ninety-nine percent perspiration.**_
 
-Dalai Lama
+Thomas Edison
