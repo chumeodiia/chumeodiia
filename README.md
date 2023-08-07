@@ -1,3 +1,3 @@
-_**Genius is one percent inspiration and ninety-nine percent perspiration.**_
+_**I love you the more in that I believe you had liked me for my own sake and for nothing else.**_
 
-Thomas Edison
+John Keats
