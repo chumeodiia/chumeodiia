@@ -1,3 +1,3 @@
-_**I love you the more in that I believe you had liked me for my own sake and for nothing else.**_
+_**Act as if what you do makes a difference. It does.**_
 
-John Keats
+William James
