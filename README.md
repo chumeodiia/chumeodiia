@@ -1,3 +1,3 @@
-_**Act as if what you do makes a difference. It does.**_
+_**The grand essentials of happiness are: something to do, something to love, and something to hope for.**_
 
-William James
+Alexander Chalmers
