@@ -1,3 +1,3 @@
-_**The grand essentials of happiness are: something to do, something to love, and something to hope for.**_
+_**Communications tools don't get socially interesting until they get technologically boring.**_
 
-Alexander Chalmers
+Clay Shirky
