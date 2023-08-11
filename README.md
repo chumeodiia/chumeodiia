@@ -1,3 +1,3 @@
-_**Communications tools don't get socially interesting until they get technologically boring.**_
+_**The smaller the mind the greater the conceit.**_
 
-Clay Shirky
+Aesop
