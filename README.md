@@ -1,3 +1,3 @@
-_**The smaller the mind the greater the conceit.**_
+_**I never see what has been done; I only see what remains to be done.**_
 
-Aesop
+Marie Curie
