@@ -1,3 +1,3 @@
-_**I never see what has been done; I only see what remains to be done.**_
+_**All love that has not friendship for its base, is like a mansion built upon the sand.**_
 
-Marie Curie
+Ella Wheeler Wilcox
