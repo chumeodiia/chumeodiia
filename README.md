@@ -1,3 +1,3 @@
-_**All love that has not friendship for its base, is like a mansion built upon the sand.**_
+_**I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex.**_
 
-Ella Wheeler Wilcox
+Kurt Vonnegut
