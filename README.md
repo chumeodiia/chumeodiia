@@ -1,3 +1,3 @@
-_**I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex.**_
+_**It is the neglect of timely repair that makes rebuilding necessary.**_
 
-Kurt Vonnegut
+Richard Whately
