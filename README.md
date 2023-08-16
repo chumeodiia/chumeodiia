@@ -1,3 +1,3 @@
-_**It is the neglect of timely repair that makes rebuilding necessary.**_
+_**Opportunity often comes disguised in the form of misfortune, or temporary defeat.**_
 
-Richard Whately
+Napoleon Hill
