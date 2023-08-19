@@ -1,3 +1,3 @@
-_**Trust is the lubrication that makes it possible for organizations to work.**_
+_**Not what we have but what we enjoy constitutes our abundance.**_
 
-Warren Bennis
+Jean Antoine Petit-Senn
