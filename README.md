@@ -1,3 +1,3 @@
-_**Not what we have but what we enjoy constitutes our abundance.**_
+_**All of our technology is completely unnecessary to a happy life.**_
 
-Jean Antoine Petit-Senn
+Tom Hodgkinson
