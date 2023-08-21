@@ -1,3 +1,3 @@
-_**All of our technology is completely unnecessary to a happy life.**_
+_**The simplest things are often the truest.**_
 
-Tom Hodgkinson
+Richard Bach
