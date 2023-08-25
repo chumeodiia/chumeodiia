@@ -1,3 +1,3 @@
-_**The best way to predict your future is to create it.**_
+_**I'm not in this world to live up to your expectations and you're not in this world to live up to mine.**_
 
-Peter Drucker
+Bruce Lee
