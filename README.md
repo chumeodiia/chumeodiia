@@ -1,3 +1,3 @@
-_**I'm not in this world to live up to your expectations and you're not in this world to live up to mine.**_
+_**Action is the foundational key to all success.**_
 
-Bruce Lee
+Pablo Picasso
