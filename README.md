@@ -1,3 +1,3 @@
-_**Action is the foundational key to all success.**_
+_**It's not what you look at that matters, it's what you see.**_
 
-Pablo Picasso
+Henry David Thoreau
