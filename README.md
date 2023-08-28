@@ -1,3 +1,3 @@
-_**It's not what you look at that matters, it's what you see.**_
+_**No pessimist ever discovered the secrets of the stars, or sailed to an uncharted land, or opened a new heaven to the human spirit.**_
 
-Henry David Thoreau
+Helen Keller
