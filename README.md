@@ -1,3 +1,3 @@
-_**You can always tell a real friend: when you've made a fool of yourself he doesn't feel you've done a permanent job.**_
+_**A lot of people give up just before theyre about to make it. You know you never know when that next obstacle is going to be the last one.**_
 
-Laurence J. Peter
+Chuck Norris
