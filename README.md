@@ -1,3 +1,3 @@
-_**A lot of people give up just before theyre about to make it. You know you never know when that next obstacle is going to be the last one.**_
+_**Fans don't boo nobodies.**_
 
-Chuck Norris
+Reggie Jackson (basketball, born 1990)
