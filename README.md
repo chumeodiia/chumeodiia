@@ -1,3 +1,3 @@
-_**Fans don't boo nobodies.**_
+_**He who is taught to live upon little owes more to his father's wisdom than he who has a great deal left him does to his father's care.**_
 
-Reggie Jackson (basketball, born 1990)
+William C. Menninger
