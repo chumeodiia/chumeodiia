@@ -1,3 +1,3 @@
-_**He who is taught to live upon little owes more to his father's wisdom than he who has a great deal left him does to his father's care.**_
+_**Friendship is one of our most treasured relationships, but it isn't codified and celebrated; it's never going to give you a party.**_
 
-William C. Menninger
+Hanya Yanagihara
