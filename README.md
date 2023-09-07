@@ -1,3 +1,3 @@
-_**Consult not your fears but your hopes and your dreams. Think not about your frustrations, but about your unfulfilled potential. Concern yourself not with what you tried and failed in, but with what it is still possible for you to do.**_
+_**A leader is one who knows the way, goes the way, and shows the way.**_
 
-Pope John XXIII
+John C. Maxwell
