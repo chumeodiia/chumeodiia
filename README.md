@@ -1,3 +1,3 @@
-_**A leader is one who knows the way, goes the way, and shows the way.**_
+_**We never live; we are always in the expectation of living.**_
 
-John C. Maxwell
+Voltaire
