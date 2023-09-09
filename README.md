@@ -1,3 +1,3 @@
-_**We never live; we are always in the expectation of living.**_
+_**It is a characteristic of wisdom not to do desperate things.**_
 
-Voltaire
+Henry David Thoreau
