@@ -1,3 +1,3 @@
-_**It is a characteristic of wisdom not to do desperate things.**_
+_**Effort only fully releases its reward after a person refuses to quit.**_
 
-Henry David Thoreau
+Napoleon Hill
