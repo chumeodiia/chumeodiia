@@ -1,3 +1,3 @@
-_**Effort only fully releases its reward after a person refuses to quit.**_
+_**Friendships are the family we make - not the one we inherit. I've always been someone to whom friendship, elective affinities, is as important as family.**_
 
-Napoleon Hill
+Salman Rushdie
