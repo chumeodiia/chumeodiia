@@ -1,3 +1,3 @@
-_**Friendships are the family we make - not the one we inherit. I've always been someone to whom friendship, elective affinities, is as important as family.**_
+_**So then, the relationship of self to other is the complete realization that loving yourself is impossible without loving everything defined as other than yourself.**_
 
-Salman Rushdie
+Alan Watts
