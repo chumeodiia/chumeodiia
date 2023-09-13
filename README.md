@@ -1,3 +1,3 @@
-_**So then, the relationship of self to other is the complete realization that loving yourself is impossible without loving everything defined as other than yourself.**_
+_**Let there be no purpose in friendship save the deepening of the spirit.**_
 
-Alan Watts
+Kahlil Gibran
