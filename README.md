@@ -1,3 +1,3 @@
-_**Let there be no purpose in friendship save the deepening of the spirit.**_
+_**Many men go fishing all of their lives without knowing that it is not fish they are after.**_
 
-Kahlil Gibran
+Henry David Thoreau
