@@ -1,3 +1,3 @@
-_**Many men go fishing all of their lives without knowing that it is not fish they are after.**_
+_**Nothing in life is to be feared, it is only to be understood. Now is the time to understand more, so that we may fear less.**_
 
-Henry David Thoreau
+Marie Curie
