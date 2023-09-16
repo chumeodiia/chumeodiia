@@ -1,3 +1,3 @@
-_**Nothing in life is to be feared, it is only to be understood. Now is the time to understand more, so that we may fear less.**_
+_**For every failure, there's an alternative course of action. You just have to find it. When you come to a roadblock, take a detour.**_
 
-Marie Curie
+Mary Kay Ash
