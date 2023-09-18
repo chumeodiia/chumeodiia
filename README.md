@@ -1,3 +1,3 @@
-_**Of all possessions a friend is the most precious.**_
+_**Tragedy is a tool for the living to gain wisdom, not a guide by which to live.**_
 
-Herodotus
+Robert F. Kennedy
