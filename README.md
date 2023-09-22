@@ -1,3 +1,3 @@
-_**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**_
+_**I'm astounded by people who want to 'know' the universe when it's hard enough to find your way around Chinatown.**_
 
-Democritus
+Woody Allen
