@@ -1,3 +1,3 @@
-_**You have to do your own growing no matter how tall your grandfather was.**_
+_**Independence is happiness.**_
 
-Abraham Lincoln
+Susan B. Anthony
