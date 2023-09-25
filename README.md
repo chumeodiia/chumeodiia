@@ -1,3 +1,3 @@
-_**Independence is happiness.**_
+_**It is a miracle that curiosity survives formal education.**_
 
-Susan B. Anthony
+Albert Einstein
