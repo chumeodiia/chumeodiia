@@ -1,3 +1,3 @@
-_**It is a miracle that curiosity survives formal education.**_
+_**He who angers you conquers you.**_
 
-Albert Einstein
+Elizabeth Kenny
