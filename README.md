@@ -1,3 +1,3 @@
-_**He who angers you conquers you.**_
+_**The pessimist sees difficulty in every opportunity. The optimist sees the opportunity in every difficulty.**_
 
-Elizabeth Kenny
+Winston Churchill
