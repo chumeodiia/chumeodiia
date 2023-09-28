@@ -1,3 +1,3 @@
-_**The pessimist sees difficulty in every opportunity. The optimist sees the opportunity in every difficulty.**_
+_**One's philosophy is not best expressed in words; it is expressed in the choices one makes... and the choices we make are ultimately our responsibility.**_
 
-Winston Churchill
+Eleanor Roosevelt
