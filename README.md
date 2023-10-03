@@ -1,3 +1,3 @@
-_**Sadness flies away on the wings of time.**_
+_**If you change the way you look at things, the things you look at change.**_
 
-Jean de La Fontaine
+Wayne Dyer
