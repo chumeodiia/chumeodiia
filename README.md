@@ -1,3 +1,3 @@
-_**If you change the way you look at things, the things you look at change.**_
+_**Imagination is more important than knowledge. For while knowledge defines all we currently know and understand, imagination points to all we might yet discover and create.**_
 
-Wayne Dyer
+Albert Einstein
