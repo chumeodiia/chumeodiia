@@ -1,3 +1,3 @@
-_**The saddest aspect of life right now is that science gathers knowledge faster than society gathers wisdom.**_
+_**I never think of the future. It comes soon enough.**_
 
-Isaac Asimov
+Albert Einstein
