@@ -1,3 +1,3 @@
-_**I never think of the future. It comes soon enough.**_
+_**Time you enjoyed wasting was not wasted.**_
 
-Albert Einstein
+John Lennon
