@@ -1,3 +1,3 @@
-_**Time you enjoyed wasting was not wasted.**_
+_**The smallest act of kindness is worth more than the grandest intention.**_
 
-John Lennon
+Oscar Wilde
