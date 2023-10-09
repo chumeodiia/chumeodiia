@@ -1,3 +1,3 @@
-_**The smallest act of kindness is worth more than the grandest intention.**_
+_**All that we see or seem is but a dream within a dream.**_
 
-Oscar Wilde
+Edgar Allan Poe
