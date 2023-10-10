@@ -1,3 +1,3 @@
-_**All that we see or seem is but a dream within a dream.**_
+_**Love, friendship and respect do not unite people as much as a common hatred for something.**_
 
-Edgar Allan Poe
+Anton Chekhov
