@@ -1,3 +1,3 @@
-_**Love, friendship and respect do not unite people as much as a common hatred for something.**_
+_**Wisdom is found only in truth.**_
 
-Anton Chekhov
+Johann Wolfgang von Goethe
