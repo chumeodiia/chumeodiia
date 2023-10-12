@@ -1,3 +1,3 @@
-_**Wisdom is found only in truth.**_
+_**Our distrust is very expensive.**_
 
-Johann Wolfgang von Goethe
+Ralph Waldo Emerson
