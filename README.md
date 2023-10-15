@@ -1,3 +1,3 @@
-_**In all things of nature there is something of the marvelous.**_
+_**It is unwise to be too sure of one's own wisdom. It is healthy to be reminded that the strongest might weaken and the wisest might err.**_
 
-Aristotle
+Mahatma Gandhi
