@@ -1,3 +1,3 @@
-_**It is unwise to be too sure of one's own wisdom. It is healthy to be reminded that the strongest might weaken and the wisest might err.**_
+_**Friendship, like love, is destroyed by long absence, though it may be increased by short intermissions.**_
 
-Mahatma Gandhi
+Samuel Johnson
