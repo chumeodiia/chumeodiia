@@ -1,3 +1,3 @@
-_**Friendship, like love, is destroyed by long absence, though it may be increased by short intermissions.**_
+_**No one has ever become poor by giving.**_
 
-Samuel Johnson
+Anne Frank
