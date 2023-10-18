@@ -1,3 +1,3 @@
-_**No one has ever become poor by giving.**_
+_**If we all did the things we are capable of doing, we would literally astound ourselves.**_
 
-Anne Frank
+Thomas Edison
