@@ -1,3 +1,3 @@
-_**If we all did the things we are capable of doing, we would literally astound ourselves.**_
+_**It is not enough to have a good mind; the main thing is to use it well.**_
 
-Thomas Edison
+René Descartes
