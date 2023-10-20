@@ -1,3 +1,3 @@
-_**It is not enough to have a good mind; the main thing is to use it well.**_
+_**Our doubts are traitors and make us lose the good we often might win, by fearing to attempt.**_
 
-René Descartes
+Jane Addams
