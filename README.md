@@ -1,3 +1,3 @@
-_**No man was ever wise by chance.**_
+_**Music in the soul can be heard by the universe.**_
 
-Seneca the Younger
+Laozi
