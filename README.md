@@ -1,3 +1,3 @@
-_**Music in the soul can be heard by the universe.**_
+_**Friends are the siblings God never gave us.**_
 
-Laozi
+Mencius
