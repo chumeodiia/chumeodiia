@@ -1,3 +1,3 @@
-_**Friends are the siblings God never gave us.**_
+_**If a man does his best, what else is there?**_
 
-Mencius
+George S. Patton
