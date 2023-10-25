@@ -1,3 +1,3 @@
-_**If a man does his best, what else is there?**_
+_**Men of perverse opinion do not know the excellence of what is in their hands, till someone dash it from them.**_
 
-George S. Patton
+Sophocles
