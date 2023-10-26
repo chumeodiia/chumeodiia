@@ -1,3 +1,3 @@
-_**Men of perverse opinion do not know the excellence of what is in their hands, till someone dash it from them.**_
+_**It is the neglect of timely repair that makes rebuilding necessary.**_
 
-Sophocles
+Richard Whately
