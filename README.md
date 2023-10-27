@@ -1,3 +1,3 @@
-_**It is the neglect of timely repair that makes rebuilding necessary.**_
+_**Never reach out your hand unless you're willing to extend an arm.**_
 
-Richard Whately
+Pope Paul VI
