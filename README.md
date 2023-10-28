@@ -1,3 +1,3 @@
-_**Never reach out your hand unless you're willing to extend an arm.**_
+_**The truth is not for all men, but only for those who seek it.**_
 
-Pope Paul VI
+Ayn Rand
