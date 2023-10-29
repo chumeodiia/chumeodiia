@@ -1,3 +1,3 @@
-_**The truth is not for all men, but only for those who seek it.**_
+_**The best thing in every noble dream is the dreamer...**_
 
-Ayn Rand
+Moncure D. Conway
