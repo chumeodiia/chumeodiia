@@ -1,3 +1,3 @@
-_**The best thing in every noble dream is the dreamer...**_
+_**A friend may well be reckoned the masterpiece of nature.**_
 
-Moncure D. Conway
+Ralph Waldo Emerson
