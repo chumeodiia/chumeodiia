@@ -1,3 +1,3 @@
-_**We must be as courteous to a man as we are to a picture, which we are willing to give the advantage of a good light.**_
+_**If you want to succeed you should strike out on new paths, rather than travel the worn paths of accepted success.**_
 
-Ralph Waldo Emerson
+John Locke
