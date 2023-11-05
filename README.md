@@ -1,3 +1,3 @@
-_**The awareness of our own strength makes us modest.**_
+_**Friendship improves happiness and abates misery, by the doubling of our joy and the dividing of our grief.**_
 
-Paul Cézanne
+Cicero
