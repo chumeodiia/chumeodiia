@@ -1,3 +1,3 @@
-_**Friendship improves happiness and abates misery, by the doubling of our joy and the dividing of our grief.**_
+_**To effectively communicate, we must realize that we are all different in the way we perceive the world and use this understanding as a guide to our communication with others.**_
 
-Cicero
+Tony Robbins
