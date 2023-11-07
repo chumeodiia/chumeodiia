@@ -1,3 +1,3 @@
-_**To effectively communicate, we must realize that we are all different in the way we perceive the world and use this understanding as a guide to our communication with others.**_
+_**Where there is charity and wisdom, there is neither fear nor ignorance.**_
 
-Tony Robbins
+Francis of Assisi
