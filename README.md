@@ -1,3 +1,3 @@
-_**Much though he recites the sacred texts, but acts not accordingly, that heedless man is like a cowherd who only counts the cows of others**_
+_**Happiness mainly comes from our own attitude, rather than from external factors.**_
 
-The Buddha
+Dalai Lama
