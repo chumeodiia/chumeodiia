@@ -1,3 +1,3 @@
-_**Silence is the true friend that never betrays.**_
+_**I have an everyday religion that works for me. Love yourself first, and everything else falls into line.**_
 
-Confucius
+Lucille Ball
