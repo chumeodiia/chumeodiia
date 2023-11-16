@@ -1,3 +1,3 @@
-_**I have an everyday religion that works for me. Love yourself first, and everything else falls into line.**_
+_**It is not so much our friends' help that helps us, as the confidence of their help.**_
 
-Lucille Ball
+Epicurus
