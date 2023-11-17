@@ -1,3 +1,3 @@
-_**It is not so much our friends' help that helps us, as the confidence of their help.**_
+_**Happiness is when what you think, what you say, and what you do are in harmony.**_
 
-Epicurus
+Mahatma Gandhi
