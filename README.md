@@ -1,3 +1,3 @@
-_**I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do.**_
+_**Don’t sacrifice your own welfare for that of another, no matter how great. Realizing your own true welfare, be intent on just that.**_
 
-Leonardo da Vinci
+The Buddha
