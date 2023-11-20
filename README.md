@@ -1,3 +1,3 @@
-_**Don’t sacrifice your own welfare for that of another, no matter how great. Realizing your own true welfare, be intent on just that.**_
+_**He who has imagination without learning has wings but no feet.**_
 
-The Buddha
+Joseph Joubert
