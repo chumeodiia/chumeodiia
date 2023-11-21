@@ -1,3 +1,3 @@
-_**He who has imagination without learning has wings but no feet.**_
+_**When times are bad is when the real entrepreneurs emerge.**_
 
-Joseph Joubert
+Robert Kiyosaki
