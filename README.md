@@ -1,3 +1,3 @@
-_**When times are bad is when the real entrepreneurs emerge.**_
+_**The pessimist sees difficulty in every opportunity. The optimist sees the opportunity in every difficulty.**_
 
-Robert Kiyosaki
+Winston Churchill
