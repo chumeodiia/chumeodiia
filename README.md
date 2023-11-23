@@ -1,3 +1,3 @@
-_**The pessimist sees difficulty in every opportunity. The optimist sees the opportunity in every difficulty.**_
+_**Conditions fall apart. Persist with diligence.**_
 
-Winston Churchill
+The Buddha
