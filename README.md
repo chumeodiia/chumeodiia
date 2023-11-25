@@ -1,3 +1,3 @@
-_**You can tell whether a man is clever by his answers. You can tell whether a man is wise by his questions.**_
+_**Life is really simple, but we insist on making it complicated.**_
 
-Naguib Mahfouz
+Confucius
