@@ -1,3 +1,3 @@
-_**Life is really simple, but we insist on making it complicated.**_
+_**So much technology, so little talent.**_
 
-Confucius
+Vernor Vinge
