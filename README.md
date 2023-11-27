@@ -1,3 +1,3 @@
-_**So much technology, so little talent.**_
+_**The only thing to do with good advice is to pass it on. It is never of any use to oneself.**_
 
-Vernor Vinge
+Oscar Wilde
