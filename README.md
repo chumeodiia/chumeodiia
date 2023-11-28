@@ -1,3 +1,3 @@
-_**The only thing to do with good advice is to pass it on. It is never of any use to oneself.**_
+_**To be able to give away riches is mandatory if you wish to possess them. This is the only way that you will be truly rich.**_
 
-Oscar Wilde
+Muhammad Ali
