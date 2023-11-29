@@ -1,3 +1,3 @@
-_**To be able to give away riches is mandatory if you wish to possess them. This is the only way that you will be truly rich.**_
+_**Practice yourself, for heaven's sake in little things, and then proceed to greater.**_
 
-Muhammad Ali
+Epictetus
