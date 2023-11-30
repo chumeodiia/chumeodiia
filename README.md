@@ -1,3 +1,3 @@
-_**Practice yourself, for heaven's sake in little things, and then proceed to greater.**_
+_**One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity.**_
 
-Epictetus
+Albert Schweitzer
