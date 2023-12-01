@@ -1,3 +1,3 @@
-_**One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity.**_
+_**To keep your secret is wisdom; but to expect others to keep it is folly.**_
 
-Albert Schweitzer
+Samuel Johnson
