@@ -1,3 +1,3 @@
-_**To keep your secret is wisdom; but to expect others to keep it is folly.**_
+_**An ant on the move does more than a dozing ox**_
 
-Samuel Johnson
+Laozi
