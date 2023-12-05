@@ -1,3 +1,3 @@
-_**Ask yourself the secret of your success. Listen to your answer and practice it.**_
+_**Science investigates; religion interprets. Science gives man knowledge which is power; religion gives man wisdom which is control.**_
 
-Richard Bach
+Martin Luther King Jr.
