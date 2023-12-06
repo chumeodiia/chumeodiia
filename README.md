@@ -1,3 +1,3 @@
-_**Science investigates; religion interprets. Science gives man knowledge which is power; religion gives man wisdom which is control.**_
+_**The one thing that you have that nobody else has is you. Your voice, your mind, your story, your vision. So write and draw and build and play and dance and live as only you can.**_
 
-Martin Luther King Jr.
+Neil Gaiman
