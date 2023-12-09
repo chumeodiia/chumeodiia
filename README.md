@@ -1,3 +1,3 @@
-_**Life shrinks or expands in proportion to one's courage.**_
+_**A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves.**_
 
-Anaïs Nin
+Laozi
