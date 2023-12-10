@@ -1,3 +1,3 @@
-_**A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves.**_
+_**The more you like yourself, the less you are like anyone else, which makes you unique.**_
 
-Laozi
+Walt Disney
