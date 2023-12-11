@@ -1,3 +1,3 @@
-_**The more you like yourself, the less you are like anyone else, which makes you unique.**_
+_**Beware of missing chances; otherwise it may be altogether too late someday.**_
 
-Walt Disney
+Franz Liszt
