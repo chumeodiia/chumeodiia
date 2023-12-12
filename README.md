@@ -1,3 +1,3 @@
-_**Beware of missing chances; otherwise it may be altogether too late someday.**_
+_**To understand the heart and mind of a person, look not at what he has already achieved, but at what he aspires to do.**_
 
-Franz Liszt
+Kahlil Gibran
