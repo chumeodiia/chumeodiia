@@ -1,3 +1,3 @@
-_**True friendship multiplies the good in life and divides its evils. Strive to have friends, for life without friends is like life on a desert island... to find one real friend in a lifetime is good fortune; to keep him is a blessing.**_
+_**I want my friend to miss me as long as I miss him.**_
 
-Baltasar Gracián
+Augustine of Hippo
