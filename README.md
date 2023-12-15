@@ -1,3 +1,3 @@
-_**I want my friend to miss me as long as I miss him.**_
+_**Our work is the presentation of our capabilities.**_
 
-Augustine of Hippo
+Edward Gibbon
