@@ -1,3 +1,3 @@
-_**Our work is the presentation of our capabilities.**_
+_**Science is organized knowledge. Wisdom is organized life.**_
 
-Edward Gibbon
+Immanuel Kant
