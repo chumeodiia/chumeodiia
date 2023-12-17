@@ -1,3 +1,3 @@
-_**Science is organized knowledge. Wisdom is organized life.**_
+_**The price of greatness is responsibility.**_
 
-Immanuel Kant
+Winston Churchill
