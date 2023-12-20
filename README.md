@@ -1,3 +1,3 @@
-_**Be here now. Be someplace else later. Is that so complicated?**_
+_**Gratitude makes sense of our past, brings peace for today, and creates a vision for tomorrow.**_
 
-David Bader
+Melody Beattie
