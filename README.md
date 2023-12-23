@@ -1,3 +1,3 @@
-_**O, what a tangled web we weave when first we practice to deceive!**_
+_**A short saying often contains much wisdom.**_
 
-Walter Scott
+Sophocles
