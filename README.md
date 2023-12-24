@@ -1,3 +1,3 @@
-_**A short saying often contains much wisdom.**_
+_**Stay away from what might have been and look at what will be.**_
 
-Sophocles
+Marsha Petrie Sue
