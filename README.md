@@ -1,3 +1,3 @@
-_**It is not fair to ask of others what you are unwilling to do yourself.**_
+_**I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind.**_
 
-Eleanor Roosevelt
+Albert Einstein
