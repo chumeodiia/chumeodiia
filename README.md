@@ -1,3 +1,3 @@
-_**I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind.**_
+_**Obstacles are those frightful things you see when you take your eyes off your goal.**_
 
-Albert Einstein
+Henry Ford
