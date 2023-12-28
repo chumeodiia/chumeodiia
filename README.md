@@ -1,3 +1,3 @@
-_**Obstacles are those frightful things you see when you take your eyes off your goal.**_
+_**Logic will get you from A to B. Imagination will take you everywhere.**_
 
-Henry Ford
+Albert Einstein
