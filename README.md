@@ -1,3 +1,3 @@
-_**Logic will get you from A to B. Imagination will take you everywhere.**_
+_**Life without love is like a tree without blossoms or fruit.**_
 
-Albert Einstein
+Kahlil Gibran
