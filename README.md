@@ -1,3 +1,3 @@
-_**Life without love is like a tree without blossoms or fruit.**_
+_**Yesterday I dared to struggle. Today I dare to win.**_
 
-Kahlil Gibran
+Bernadette Devlin
