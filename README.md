@@ -1,3 +1,3 @@
-_**Yesterday I dared to struggle. Today I dare to win.**_
+_**A thing long expected takes the form of the unexpected when at last it comes.**_
 
-Bernadette Devlin
+Mark Twain
