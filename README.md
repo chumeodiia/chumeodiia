@@ -1,3 +1,3 @@
-_**A thing long expected takes the form of the unexpected when at last it comes.**_
+_**With the realization of one's own potential and self-confidence in one's ability, one can build a better world.**_
 
-Mark Twain
+Dalai Lama
