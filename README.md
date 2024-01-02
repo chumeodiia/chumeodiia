@@ -1,3 +1,3 @@
-_**With the realization of one's own potential and self-confidence in one's ability, one can build a better world.**_
+_**All that is necessary is to accept the impossible, do without the indispensable, and bear the intolerable.**_
 
-Dalai Lama
+Kathleen Norris
