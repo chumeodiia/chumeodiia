@@ -1,3 +1,3 @@
-_**All that is necessary is to accept the impossible, do without the indispensable, and bear the intolerable.**_
+_**Between saying and doing, many a pair of shoes is worn out.**_
 
-Kathleen Norris
+Iris Murdoch
