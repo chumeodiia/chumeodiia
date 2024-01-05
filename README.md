@@ -1,3 +1,3 @@
-_**But what is liberty without wisdom, and without virtue? It is the greatest of all possible evils; for it is folly, vice, and madness, without tuition or restraint.**_
+_**We do not quit playing because we grow old, we grow old because we quit playing.**_
 
-Edmund Burke
+Oliver Wendell Holmes Jr.
