@@ -1,3 +1,3 @@
-_**We do not quit playing because we grow old, we grow old because we quit playing.**_
+_**Ideals are an imaginative understanding of that which is desirable in that which is possible.**_
 
-Oliver Wendell Holmes Jr.
+Walter Lippmann
