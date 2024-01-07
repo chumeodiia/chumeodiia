@@ -1,3 +1,3 @@
-_**Ideals are an imaginative understanding of that which is desirable in that which is possible.**_
+_**If a man watches three football games in a row, he should be declared legally dead.**_
 
-Walter Lippmann
+Erma Bombeck
