@@ -1,3 +1,3 @@
-_**If a man watches three football games in a row, he should be declared legally dead.**_
+_**Choose a job you love, and you will never have to work a day in your life.**_
 
-Erma Bombeck
+Confucius
