@@ -1,3 +1,3 @@
-_**Choose a job you love, and you will never have to work a day in your life.**_
+_**It is fatal to enter any war without the will to win it.**_
 
-Confucius
+Douglas MacArthur
