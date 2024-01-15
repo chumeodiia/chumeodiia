@@ -1,3 +1,3 @@
-_**The world turns aside to let any man pass who knows where he is going.**_
+_**Ability will never catch up with the demand for it.**_
 
-Epictetus
+Confucius
