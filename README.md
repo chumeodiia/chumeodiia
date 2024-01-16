@@ -1,3 +1,3 @@
-_**Ability will never catch up with the demand for it.**_
+_**Silence is the true friend that never betrays.**_
 
 Confucius
