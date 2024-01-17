@@ -1,3 +1,3 @@
-_**Silence is the true friend that never betrays.**_
+_**He who hath many friends hath none.**_
 
-Confucius
+Aristotle
