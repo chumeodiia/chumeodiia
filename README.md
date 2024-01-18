@@ -1,3 +1,3 @@
-_**He who hath many friends hath none.**_
+_**Happiness cannot be travelled to, owned, earned, worn or consumed. Happiness is the spiritual experience of living every minute with love, grace and gratitude.**_
 
-Aristotle
+Denis Waitley
