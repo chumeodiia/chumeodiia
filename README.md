@@ -1,3 +1,3 @@
-_**Happiness cannot be travelled to, owned, earned, worn or consumed. Happiness is the spiritual experience of living every minute with love, grace and gratitude.**_
+_**The moment one gives close attention to anything, it becomes a mysterious, awesome, indescribably magnificent world in itself.**_
 
-Denis Waitley
+Henry Miller
