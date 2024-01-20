@@ -1,3 +1,3 @@
-_**The moment one gives close attention to anything, it becomes a mysterious, awesome, indescribably magnificent world in itself.**_
+_**I have no special talent. I am only passionately curious.**_
 
-Henry Miller
+Albert Einstein
