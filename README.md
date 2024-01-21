@@ -1,3 +1,3 @@
-_**I have no special talent. I am only passionately curious.**_
+_**No act of kindness, no matter how small, is ever wasted.**_
 
-Albert Einstein
+Aesop
