@@ -1,3 +1,3 @@
-_**No act of kindness, no matter how small, is ever wasted.**_
+_**Imagination is not a talent of some men but is the health of every man.**_
 
-Aesop
+Ralph Waldo Emerson
