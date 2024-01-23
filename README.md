@@ -1,3 +1,3 @@
-_**Imagination is not a talent of some men but is the health of every man.**_
+_**When deeds and words are in accord, the whole world is transformed.**_
 
-Ralph Waldo Emerson
+Zhuang Zhou
