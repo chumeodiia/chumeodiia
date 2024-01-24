@@ -1,3 +1,3 @@
-_**When deeds and words are in accord, the whole world is transformed.**_
+_**Three things in human life are important. The first is to be kind. The second is to be kind. The third is to be kind.**_
 
-Zhuang Zhou
+Henry James
