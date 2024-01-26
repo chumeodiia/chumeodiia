@@ -1,3 +1,3 @@
-_**Nothing strengthens authority so much as silence.**_
+_**Don't smother each other. No one can grow in the shade.**_
 
-Leonardo da Vinci
+Leo Buscaglia
