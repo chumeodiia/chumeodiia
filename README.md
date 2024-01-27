@@ -1,3 +1,3 @@
-_**Don't smother each other. No one can grow in the shade.**_
+_**God has given you one face, and you make yourself another.**_
 
-Leo Buscaglia
+William Shakespeare
