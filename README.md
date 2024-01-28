@@ -1,3 +1,3 @@
-_**God has given you one face, and you make yourself another.**_
+_**The supreme art of war is to subdue the enemy without fighting.**_
 
-William Shakespeare
+Sun Tzu
