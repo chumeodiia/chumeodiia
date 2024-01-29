@@ -1,3 +1,3 @@
-_**The supreme art of war is to subdue the enemy without fighting.**_
+_**Imagination is the living power and prime agent of all human perception.**_
 
-Sun Tzu
+Samuel Taylor Coleridge
