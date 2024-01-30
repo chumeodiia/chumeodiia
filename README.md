@@ -1,3 +1,3 @@
-_**Imagination is the living power and prime agent of all human perception.**_
+_**The person who makes a success of living is the one who see his goal steadily and aims for it unswervingly. That is dedication.**_
 
-Samuel Taylor Coleridge
+Cecil B. DeMille
