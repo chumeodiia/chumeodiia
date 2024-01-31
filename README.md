@@ -1,3 +1,3 @@
-_**The person who makes a success of living is the one who see his goal steadily and aims for it unswervingly. That is dedication.**_
+_**Avoid having your ego so close to your position that when your position falls, your ego goes with it.**_
 
-Cecil B. DeMille
+Colin Powell
