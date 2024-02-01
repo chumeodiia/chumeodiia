@@ -1,3 +1,3 @@
-_**Avoid having your ego so close to your position that when your position falls, your ego goes with it.**_
+_**There is no duty we so underrate as the duty of being happy. By being happy we sow anonymous benefits upon the world.**_
 
-Colin Powell
+Robert Louis Stevenson
