@@ -1,3 +1,3 @@
-_**There is no duty we so underrate as the duty of being happy. By being happy we sow anonymous benefits upon the world.**_
+_**Life is like riding a bicycle. To keep your balance you must keep moving.**_
 
-Robert Louis Stevenson
+Albert Einstein
