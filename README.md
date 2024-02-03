@@ -1,3 +1,3 @@
-_**Life is like riding a bicycle. To keep your balance you must keep moving.**_
+_**If we look at the world with a love of life, the world will reveal its beauty to us.**_
 
-Albert Einstein
+Daisaku Ikeda
