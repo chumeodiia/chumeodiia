@@ -1,3 +1,3 @@
-_**If you break your neck, if you have nothing to eat, if your house is on fire, then you got a problem. Everything else is inconvenience.**_
+_**Be slow to fall into friendship; but when thou art in, continue firm and constant.**_
 
-Robert Fulghum
+Isocrates
