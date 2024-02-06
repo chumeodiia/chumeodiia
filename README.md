@@ -1,3 +1,3 @@
-_**Be slow to fall into friendship; but when thou art in, continue firm and constant.**_
+_**By nature, man hates change; seldom will he quit his old home till it has actually fallen around his ears.**_
 
-Isocrates
+Thomas Carlyle
