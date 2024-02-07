@@ -1,3 +1,3 @@
-_**By nature, man hates change; seldom will he quit his old home till it has actually fallen around his ears.**_
+_**Blessed are the hearts that can bend; they shall never be broken.**_
 
-Thomas Carlyle
+Albert Camus
