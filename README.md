@@ -1,3 +1,3 @@
-_**You cannot step twice into the same river, for other waters are continually flowing in.**_
+_**Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing.**_
 
-Heraclitus
+Elie Wiesel
