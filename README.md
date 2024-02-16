@@ -1,3 +1,3 @@
-_**Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing.**_
+_**Let the beauty of what you love be what you do.**_
 
-Elie Wiesel
+Rumi
