@@ -1,3 +1,3 @@
-_**Let the beauty of what you love be what you do.**_
+_**It is the mark of an educated mind to be able to entertain a thought without accepting it.**_
 
-Rumi
+Aristotle
