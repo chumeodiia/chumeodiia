@@ -1,3 +1,3 @@
-_**It is the mark of an educated mind to be able to entertain a thought without accepting it.**_
+_**But what is liberty without wisdom, and without virtue? It is the greatest of all possible evils; for it is folly, vice, and madness, without tuition or restraint.**_
 
-Aristotle
+Edmund Burke
