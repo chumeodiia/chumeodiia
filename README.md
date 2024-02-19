@@ -1,3 +1,3 @@
-_**But what is liberty without wisdom, and without virtue? It is the greatest of all possible evils; for it is folly, vice, and madness, without tuition or restraint.**_
+_**Life isn't about finding yourself. Life is about creating yourself.**_
 
-Edmund Burke
+Bernard Shaw
