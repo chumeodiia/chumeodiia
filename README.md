@@ -1,3 +1,3 @@
-_**Never do things others can do and will do, if there are things others cannot do or will not do.**_
+_**I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex.**_
 
-Amelia Earhart
+Kurt Vonnegut
