@@ -1,3 +1,3 @@
-_**I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex.**_
+_**Good, better, best. Never let it rest. ‘Til your good is better and your better is best.**_
 
-Kurt Vonnegut
+Jerome
