@@ -1,3 +1,3 @@
-_**Good, better, best. Never let it rest. ‘Til your good is better and your better is best.**_
+_**I have always found that mercy bears richer fruits than strict justice.**_
 
-Jerome
+Abraham Lincoln
