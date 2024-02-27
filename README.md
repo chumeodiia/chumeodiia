@@ -1,3 +1,3 @@
-_**The greatest achievement of humanity is not its works of art, science, or technology, but the recognition of its own dysfunction.**_
+_**All I required to be happy was friendship and people I could admire.**_
 
-Eckhart Tolle
+Christian Dior
