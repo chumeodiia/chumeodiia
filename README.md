@@ -1,3 +1,3 @@
-_**All I required to be happy was friendship and people I could admire.**_
+_**All difficult things have their origin in that which is easy, and great things in that which is small.**_
 
-Christian Dior
+Laozi
