@@ -1,3 +1,3 @@
-_**Genius is one percent inspiration and ninety-nine percent perspiration.**_
+_**May our hearts garden of awakening bloom with hundreds of flowers.**_
 
-Thomas Edison
+Thích Nhất Hạnh
