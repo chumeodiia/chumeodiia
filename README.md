@@ -1,3 +1,3 @@
-_**May our hearts garden of awakening bloom with hundreds of flowers.**_
+_**Don't cry because it's over. Smile because it happened.**_
 
-Thích Nhất Hạnh
+Dr. Seuss
