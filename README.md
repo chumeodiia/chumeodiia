@@ -1,3 +1,3 @@
-_**Don't cry because it's over. Smile because it happened.**_
+_**Sadness flies away on the wings of time.**_
 
-Dr. Seuss
+Jean de La Fontaine
