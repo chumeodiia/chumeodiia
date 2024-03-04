@@ -1,3 +1,3 @@
-_**Sadness flies away on the wings of time.**_
+_**Never accept ultimatums, conventional wisdom, or absolutes.**_
 
-Jean de La Fontaine
+Christopher Reeve
