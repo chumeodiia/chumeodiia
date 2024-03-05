@@ -1,3 +1,3 @@
-_**Never accept ultimatums, conventional wisdom, or absolutes.**_
+_**Begin at once to live and count each separate day as a separate life.**_
 
-Christopher Reeve
+Seneca the Younger
