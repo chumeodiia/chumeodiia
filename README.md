@@ -1,3 +1,3 @@
-_**Begin at once to live and count each separate day as a separate life.**_
+_**Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots.**_
 
-Seneca the Younger
+H. Jackson Brown Jr.
