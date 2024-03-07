@@ -1,3 +1,3 @@
-_**Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots.**_
+_**Wisdom is the power to put our time and our knowledge to the proper use.**_
 
-H. Jackson Brown Jr.
+Thomas J. Watson
