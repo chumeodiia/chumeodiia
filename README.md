@@ -1,3 +1,3 @@
-_**Wisdom is the power to put our time and our knowledge to the proper use.**_
+_**Ignorant men raise questions that wise men answered a thousand years ago.**_
 
-Thomas J. Watson
+Johann Wolfgang von Goethe
