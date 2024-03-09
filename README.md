@@ -1,3 +1,3 @@
-_**Ignorant men raise questions that wise men answered a thousand years ago.**_
+_**Knowledge without justice ought to be called cunning rather than wisdom.**_
 
-Johann Wolfgang von Goethe
+Plato
