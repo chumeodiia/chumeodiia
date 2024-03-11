@@ -1,3 +1,3 @@
-_**If you love life, don't waste time, for time is what life is made up of.**_
+_**Once you label me you negate me.**_
 
-Bruce Lee
+Søren Kierkegaard
