@@ -1,3 +1,3 @@
-_**Once you label me you negate me.**_
+_**Where there is great love, there are always miracles.**_
 
-Søren Kierkegaard
+Willa Cather
