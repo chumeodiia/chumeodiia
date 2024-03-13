@@ -1,3 +1,3 @@
-_**Where there is great love, there are always miracles.**_
+_**It had long since come to my attention that people of accomplishment rarely sat back and let things happen to them. They went out and happened to things.**_
 
-Willa Cather
+Leonardo da Vinci
