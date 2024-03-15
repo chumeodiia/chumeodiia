@@ -1,3 +1,3 @@
-_**Experience is simply the name we give our mistakes.**_
+_**There is no duty we so underrate as the duty of being happy. By being happy we sow anonymous benefits upon the world.**_
 
-Oscar Wilde
+Robert Louis Stevenson
