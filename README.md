@@ -1,3 +1,3 @@
-_**There is no duty we so underrate as the duty of being happy. By being happy we sow anonymous benefits upon the world.**_
+_**Reviewing what you have learned and learning anew, you are fit to be a teacher.**_
 
-Robert Louis Stevenson
+Confucius
