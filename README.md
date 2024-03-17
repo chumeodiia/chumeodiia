@@ -1,3 +1,3 @@
-_**Reviewing what you have learned and learning anew, you are fit to be a teacher.**_
+_**This is the final test of a gentleman: his respect for those who can be of no possible value to him.**_
 
-Confucius
+William Lyon Phelps
