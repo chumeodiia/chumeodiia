@@ -1,3 +1,3 @@
-_**This is the final test of a gentleman: his respect for those who can be of no possible value to him.**_
+_**Love does not consist of gazing at each other, but in looking together in the same direction.**_
 
-William Lyon Phelps
+Antoine de Saint-Exupéry
