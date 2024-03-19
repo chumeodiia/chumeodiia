@@ -1,3 +1,3 @@
-_**Love does not consist of gazing at each other, but in looking together in the same direction.**_
+_**You can't cross the sea merely by standing and staring at the water.**_
 
-Antoine de Saint-Exupéry
+Rabindranath Tagore
