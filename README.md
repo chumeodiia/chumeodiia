@@ -1,3 +1,3 @@
-_**You can't cross the sea merely by standing and staring at the water.**_
+_**Change is the law of life. And those who look only to the past or present are certain to miss the future.**_
 
-Rabindranath Tagore
+John F. Kennedy
