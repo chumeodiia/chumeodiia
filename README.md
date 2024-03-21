@@ -1,3 +1,3 @@
-_**Change is the law of life. And those who look only to the past or present are certain to miss the future.**_
+_**Accept the challenges so that you can feel the exhilaration of victory.**_
 
-John F. Kennedy
+George S. Patton
