@@ -1,3 +1,3 @@
-_**Accept the challenges so that you can feel the exhilaration of victory.**_
+_**Man is not sum of what he has already, but rather the sum of what he does not yet have, of what he could have.**_
 
-George S. Patton
+Jean-Paul Sartre
