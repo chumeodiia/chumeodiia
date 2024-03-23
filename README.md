@@ -1,3 +1,3 @@
-_**Man is not sum of what he has already, but rather the sum of what he does not yet have, of what he could have.**_
+_**I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can.**_
 
-Jean-Paul Sartre
+Bernard Shaw
