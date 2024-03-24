@@ -1,3 +1,3 @@
-_**I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can.**_
+_**Absence makes the heart grow fonder.**_
 
-Bernard Shaw
+Thomas Haynes Bayly
