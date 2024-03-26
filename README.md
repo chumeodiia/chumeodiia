@@ -1,3 +1,3 @@
-_**You learn to speak by speaking, to study by studying, to run by running, to work by working; in just the same way, you learn to love by loving.**_
+_**Science investigates; religion interprets. Science gives man knowledge which is power; religion gives man wisdom which is control.**_
 
-Anatole France
+Martin Luther King Jr.
