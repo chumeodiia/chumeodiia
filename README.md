@@ -1,3 +1,3 @@
-_**Science investigates; religion interprets. Science gives man knowledge which is power; religion gives man wisdom which is control.**_
+_**Where all think alike, no one thinks very much.**_
 
-Martin Luther King Jr.
+Walter Lippmann
