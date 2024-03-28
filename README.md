@@ -1,3 +1,3 @@
-_**Where all think alike, no one thinks very much.**_
+_**Technology… the knack of so arranging the world that we don't have to experience it.**_
 
-Walter Lippmann
+Max Frisch
